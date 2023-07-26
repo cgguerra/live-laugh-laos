@@ -9,7 +9,7 @@ lang: "en"
 title: Live Laugh Laos
 
 # Short bio or description (displayed in the header)
-description: A simple, elegant and full featured Jekyll theme
+description: Christina's Fulbright award to Laos
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
 avatar: /live-laugh-laos/assets/image/avatar.png
@@ -54,7 +54,7 @@ footer_links:
     icon: fa fa-github-square
 
 # Enter your copyright text if you wish to override the default one.
-#copyright: "This site is made with <3 by *me, myself, and I*."
+copyright: "This is not an official website of the US Fulbright Program. Any opinions expressed on this weblog are personal and not formally endorsed by any mentioned institutions, including the US Fulbright Program, the US State Department, and the National University of Laos."
 
 # Time zone
 timezone: null
