@@ -4,6 +4,4 @@ title: About
 permalink: /about
 ---
 
-Hi, Write an awesome description about your blog here.  
-Feel free to make it a bit more interesting by adding a picture or two.  
-Only limit here is your creativity and imagination. Unleash them with full force.  
+Hello, my name is Christina Guerra, and I will be serving as a Fulbright English Teaching Assistant to Laos for the 2023-2024 academic year. I will be teaching English at the National University of Laos.  
