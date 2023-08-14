@@ -28,12 +28,14 @@ Check out the [Wikipedia page for Laos](https://en.wikipedia.org/wiki/Laos)
 Laos borders five countries including Thailand, Myanmar (Burma), China, Vietnam, and Cambodia. Laos is the only land-locked country in Southeast Asia. The Mekong river divides Laos and Thailand and runs throughout the rest of the country. Nearly three-quarters of Laos is covered in mountains. 
 
 ![This is a map of Laos](https://lh3.googleusercontent.com/pw/AIL4fc9QLvHtDhTKGS2wej6Ngt7aDGO1Owt7wL4ELIziuLrMrQ7vOGATFvvh7Zxp0GfiLr9WqScQ9owMgsv_l3t5TZcVL2GtLMEs5HYS_5ZGPiwk1P9ABRGM=w2400)
+
 Courtesy of BBC
 
 
 I will attend orientation in Vientiane, the capital of Laos. Vientiane is the biggest city in Laos and has around 721,000 residents. After orientation, some of the other English Teaching Assistants (ETAs) will travel to Savannakhet and Pakse to teach English. I will be teaching at the Naitonal University of Laos, so I will stay in Vientiane for the duration of my grant. 
 
 ![This is a closeup map of Laos](https://lh3.googleusercontent.com/pw/AIL4fc-UZ5ki1fUS1k6cwtDodt1BQLEcL8aO2haFIVPYU1-j55m5je9sNJMHpKqtmuw0Z3SXjalgp58rmggovDikvprEqzT4y4Z6crc5e9PA5__HU8UESPBN=w2400)
+
 Courtesy of World Atlas
 
 
@@ -42,6 +44,7 @@ Courtesy of World Atlas
 Laos has many sites of cultural importance in Vientiane, which is where this stupa is located. This stupa is called Pha That Luang and is the most important Buddhist monument in Laos. It is believed to enshire one of the Buddha's breast bones. The ETAs will probably take a field trip here to learn about Vientiane and Lao history and culture during orientation.
 
 ![This is a picture of Pha That Luang](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Pha_That_Luang%2C_Vientiane%2C_Laos.jpg/440px-Pha_That_Luang%2C_Vientiane%2C_Laos.jpg)
+
 Courtesy of Wikipedia
 
 
