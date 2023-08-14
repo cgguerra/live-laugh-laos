@@ -1,7 +1,7 @@
 ---
 layout: post
 title: An Overview of Laos
-categories: [beginning]
+categories: [overview]
 ---
 I am excited to go to Laos! I have been researching Lao culture, traditions, and popular cities since June of 2022 when I started writing drafts of my Fulbright essays. 
 
