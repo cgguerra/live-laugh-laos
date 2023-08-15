@@ -14,6 +14,7 @@ Most people that I have talked to have not known anything about Laos because the
 Below is a picture of the resources available for learing about Laos at a local library. Countries like India and China had several entire bookshelves filled with books on history, language, art, and culture. Laos, by comparison, had very little information available. (I drew brackets around the books that focused on Laos in red to show what books were available.) This is a reflection of the lack of scholarship available on Laos and not a reflection of the local library's holdings. So, even if one did really want to learn about Laos, it would be relatively difficult to do so. This makes Laos a hidden gem in need of more attention and research, if anything!
 
 ![Laos bookshelf](https://lh3.googleusercontent.com/pw/AIL4fc8tDeGppIVeE-pg3UA1SrJO7V6ujfwJsHNwrajX-hPZuXRIhHNNLJTc9UJpjvtt1TmCLTCbIMairc9BrUtZJjUG50Qf7qez4SCXym05LCeDs4dv_WUh=w2400)
+
 Guerra, C. (2022)
 
 ## Country Profile of Laos
