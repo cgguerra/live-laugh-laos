@@ -38,6 +38,8 @@ The French Clinic is one of the best places for medical care in Laos, and is rec
 
 ![Shots in each arm](https://lh3.googleusercontent.com/pw/AIL4fc93x0ETza21uAFoqKyFKpaKxFpL_AaOXy8CTSlhiYNXcRAqGcjGJ27UEvlZg7ZzqHtv1eX5fL0MZ9LW7_-gDMP2h6pTB8OQoBVE-_oTx8ut9j2nWedA=w1000)
 
+Courtesy of Guerra, C. (2023)
+
 Check it out! We all got one shot in each arm as part of our group vaccines trip!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
