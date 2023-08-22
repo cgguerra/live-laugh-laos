@@ -1,7 +1,7 @@
 ---
 layout: post
 title: American Center Fun
-categories: [beginning]
+categories: [beginning, food, orientation]
 ---
 
 Today we went to the American Center for the first time. The American Center is a place where young Lao people can come to practice their English and learn about American culture and values. The ETAs stationed in Vientiane will be volunteering here and teaching cultural classes. They have a similar program in Savannakhet called American Corner that is smaller but has the same mission of sharing American culture and values. There is no American Corner in Champasak, but the American Embassy is looking at starting one in the next few years.
@@ -42,7 +42,7 @@ Courtesy of Guerra, C. (2023)
 
 ## Zumba by the Mekong
 
-We took a short break after lunch and then 4 of us decided to go to the gym by our hotel called Vientiane Fitness Center. They have a giant pool! However, they were sadly closed for renovations. We still wanted to exercise, so we went to a zumba class by the Mekong. I should say that it was hot zumba since it was 83 degrees Fahrenheit with 81% humidity. There are 3 zumba classes by the Mekong. It seems to be very popular here. Our class cost 10,000 kip, so it is very affordable. (A zumba class is about the cost of a bubble tea, for reference.)
+We took a short break after lunch and then 4 of us decided to go to the gym by our hotel called Vientiane Fitness Center. They have a giant pool! However, they were sadly closed for renovations. We still wanted to exercise, so we went to a zumba class by the Mekong. I should say that it was hot zumba since it was 83 degrees Fahrenheit with 81% humidity. There are 3 zumba classes by the Mekong. It seems to be very popular here. Our class cost 10,000 kip, so it is very affordable. (A zumba class is about the cost of a bubble tea, for reference.) We had a great time!
 
 ![zumba by Mekong](https://lh3.googleusercontent.com/pw/AIL4fc-PYj-7mKlJuBqiLamQaiKRkjBc48bRqp5T6Ro6HaYPNHH9fq3wCJTTmVwGPvL9AwtsceoEFC2R2qEIx-mQa__LzCWi8QkMeR7wZa44pYubkU0tGbyv=w1000)
 
