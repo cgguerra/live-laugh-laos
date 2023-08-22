@@ -1,6 +1,6 @@
 ---
 layout: post
-title: First Time at the American Center
+title: American Center Fun
 categories: [beginning]
 ---
 

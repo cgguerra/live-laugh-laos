@@ -1,6 +1,6 @@
 ---
 layout: post
-title: First Day of Orientation
+title: Meeting the Ambassador to Laos at the American Embassy
 categories: [beginning, orientation]
 ---
 
