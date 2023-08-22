@@ -28,7 +28,7 @@ Courtesy of Guerra, C. (2023)
 
 Sticky rice in a closed container the way it comes. 
 
-![Sticky rice open](https://lh3.googleusercontent.com/pw/AIL4fc-l5zfoEgO5pjXRvvr_hwOUGpEkzGZIeGp2Q15BCuiAcJFe3dfHyo2wpVhlgFZgztcVQNVkM5dHPzZY2snP4_l7ruJxUcBAHAs7VyIx6I-H85r3-DKK=w1000)
+![Sticky rice open](https://lh3.googleusercontent.com/pw/AIL4fc_Q3bmVmRJ5OTLZMtkmI28eGqtk0cTLXvR0PuhyfLBHJZfmmS4a5KHHsR594IzY0hju7kfGYnVZk60fsD3RxERN0-9U_pXpqx45JbFk0ZaxRySSpP-E=w1000)
 
 Courtesy of Guerra, C. (2023)
 
