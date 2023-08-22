@@ -1,7 +1,7 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: First Time at the American Center
+categories: [beginning]
 ---
 
 This my first post. 
