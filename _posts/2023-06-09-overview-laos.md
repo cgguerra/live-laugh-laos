@@ -33,7 +33,7 @@ Laos borders five countries including Thailand, Myanmar (Burma), China, Vietnam,
 Courtesy of BBC
 
 
-I will attend orientation in Vientiane, the capital of Laos. Vientiane is the biggest city in Laos and has around 721,000 residents. After orientation, some of the other English Teaching Assistants (ETAs) will travel to Savannakhet and Pakse to teach English. I will be teaching at the Naitonal University of Laos, so I will stay in Vientiane for the duration of my grant. 
+I will attend orientation in Vientiane, the capital of Laos. Vientiane is the biggest city in Laos and has around 721,000 residents. After orientation, some of the other English Teaching Assistants (ETAs) will travel to Savannakhet and Champasak to teach English. I will be teaching at the Naitonal University of Laos, so I will stay in Vientiane for the duration of my grant. 
 
 ![This is a closeup map of Laos](https://lh3.googleusercontent.com/pw/AIL4fc-UZ5ki1fUS1k6cwtDodt1BQLEcL8aO2haFIVPYU1-j55m5je9sNJMHpKqtmuw0Z3SXjalgp58rmggovDikvprEqzT4y4Z6crc5e9PA5__HU8UESPBN=w1500)
 
