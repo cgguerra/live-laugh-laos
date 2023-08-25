@@ -10,13 +10,13 @@ Today we went to the COPE (Cooperative Orthotic and Prosthetic Enterprise) Visit
 
 The Vietnam War is notoriously difficult to explain and rarely taught well in American schools and universities. I will not attempt to explain it. Rather, I advise and encourage you to read this extensive and comprehensive article that covers the history of the [Vietnam War](https://www.britannica.com/event/Vietnam-War/The-U-S-role-grows) in depth.
 
-In relation to Lao history, it is important to know that the Ho Chi Minh Trail runs throughout north to south Vietnam and almost spans the length of the entire country. The Ho Chi Minh Trail is in east Vietnam touching the eastern border of southeastern Laos. The U.S. dropped many bombs here from 1964 to 1973 as part of a Secret War to discourage Communism (this also happened in Cambodia) and to fight the Viet Cong (the Vietnamese Communists from North Vietnam). The U.S. dropped bombs to try and hinder the Viet Cong's operations along the Ho Chi Minh Trail and damage the surrounding areas. (For reference, the Vietnam War officially lasted from 1962 to 1973, but the conflict between teh U.S. and Northern Vietnam began in 1959.)
+In relation to Lao history, it is important to know that the Ho Chi Minh Trail runs throughout north to south Vietnam and almost spans the length of the entire country. The Ho Chi Minh Trail is in east Vietnam touching the eastern border of southeastern Laos. The U.S. dropped many bombs here from 1964 to 1973 as part of a Secret War to discourage Communism (this also happened in Cambodia) and to fight the Viet Cong (the Vietnamese Communists from North Vietnam). The U.S. dropped bombs to try and hinder the Viet Cong's operations along the Ho Chi Minh Trail and damage the surrounding areas. (For reference, the Vietnam War officially lasted from 1962 to 1973, but the conflict between the U.S. and Northern Vietnam began in 1959.)
 
 ![Ho Chi Minh Trail](https://cdn.britannica.com/29/78729-050-AC5EEAF5/map-North-and-South-Vietnam-communists-War.jpg)
 
 Courtesy of Britannica
 
-Illustration depicting the Ho Chi Minh Trail and sites of importance during the Vietnam War.
+Illustration depicting the Ho Chi Minh Trail and sites of importance during the Vietnam War
 
 ![map of bombings](https://lh3.googleusercontent.com/pw/AIL4fc_s37b_-pvq80KINiviz7J9HjB0NmIgz7WnSVsv595viKu_heO2WR4PxfAWbUk9GkaO_CP_yoI4rjJ0CvGyfBby-poXgTFaN2WWPAWL4PtRRTZdWtWV=w1000)
 
