@@ -1,14 +1,14 @@
 ---
 layout: post
 title: Nagas! Nagas Everywhere! (Field Trip to That Luang, Patuxai, Wat Sisaket, & Haw Phra Kaew)
-categories: [monuments, food, sights, Buddhism, culture, art]
+categories: [monuments, history, sights, Buddhism, art, spirit houses]
 ---
 
 Today we took a field trip to That Luang, Patuxai, and Wat Sisaket organized by the embassy.  I learned a lot about Buddhism and nagas today. I've been in Laos for a whole week as of today! 
 
 ## The Naga, the Hyperpresent Snake Divinity in Laos
 
-A naga is a divine mythical snake that lives underwater and has magical powers. There are many naga kingdoms. Each Southeastern Asian country has one naga kingdom that protects its territory and waterways. Even though Laos and Thailand are both on either side of the Mekong both have separate naga kingdoms that protect their lands. (Our guide Khong told me the names of the Lao and Thai nagas, but they were difficult to pronounce, and I unfortunately forgot their names.) 
+A naga is a divine mythical snake that lives underwater and has magical powers. There are many naga kingdoms. Each Southeastern Asian country has one naga kingdom that protects its territory and waterways. Even though Laos and Thailand are both on either side of the Mekong, both have separate naga kingdoms that protect their lands. (Our guide Khong told me the names of the Lao and Thai nagas, but they were difficult to pronounce, and I unfortunately forgot their names.) 
 
 A normal naga has one head, but the more powerful ones can have 3, 5, or 9 heads. 9 heads is the most number of naga heads you can have in Laos. Our guide Khong told us that he once saw a naga statue with 15 heads in Thailand. 
 
