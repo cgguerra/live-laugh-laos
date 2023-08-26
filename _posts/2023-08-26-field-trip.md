@@ -46,7 +46,6 @@ Courtesy of Guerra, C. (2023)
 
 A seven-headed naga I saw next to an altar by That Luang today (one of a matching set on either side of the altar)
 
-
 ![naga with 3 heads](https://lh3.googleusercontent.com/pw/AIL4fc9VPhn-RJAPaA2YOY7EzdeNvpZzUyKZPULyVkFr7FAE824-nHpPjoMSDOcsRwU0g4IagG4f2kplxJuETbSwDcLsyaYu7ko7hmsJFJoqsUHJEr-B3nF3=w1000)
 
 Courtesy of Guerra, C. (2023)
@@ -149,7 +148,7 @@ Read more about the [Lao-Siamese War](https://en.wikipedia.org/wiki/Lao–Siames
 
 Courtesy of Guerra, C. (2023)
 
-The elephant with three heads represents the three former kingdoms of Laos: Vientiane, Luang Prabang, and Champasak. The figure on top is Vishnu. 
+The elephant with three heads represents the three former kingdoms of Laos: Vientiane, Luang Prabang, and Champasak. The figure on top is Vishnu. (Also, spot the nagas.)
 
 ![temple with monks](https://lh3.googleusercontent.com/pw/AIL4fc9sy3Jfofdv9izcKJifgg140180x-KwoV1OrFQ0JqEo_6jH06hKefkx1qH71jFxR0Sbj4m2O4zEhM7_zqg8Yxcjcf5hmvozxP08yX5kFqgnDj8bAl_F=w1000)
 
@@ -159,7 +158,7 @@ This is the inside of one of the buildings of the temple complex. (Don't worry! 
 
 ## As Promised
 
-I saw another beautiful spirit house today and thought I'd share. And would you look at that! There are big naga heads sticking out of the base!
+I saw another beautiful spirit house today and thought I'd share. (Also, spot the nagas.)
 
 ![spirit house with nagas](https://lh3.googleusercontent.com/pw/AIL4fc_toiue5-mzF5OUUHSvptY639TW7-XBigxNhP2vw6Mhk24vVo0oO6aDYcOh4AvpRGgLVg9JkaqP2i8WSXUcaUfvpYT6XlJOZ4CXXwLFyFJccI9AggO6=w1000)
 
