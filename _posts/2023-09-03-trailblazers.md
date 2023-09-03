@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trailblazers @ Pha Ngern Trail
+title: Trailblazers at Pha Ngern Trail
 categories: [sights]
 ---
 
