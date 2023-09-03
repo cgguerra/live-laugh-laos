@@ -40,7 +40,11 @@ We went to the first Blue Lagoon and had a great time. There were lots of fish i
 
 Courtesy of Guerra, C. (2023)
 
-Tomorrow we are going kayaking, which will be so much fun!
+## Calling It a Night
+
+At night, we had dinner at Gary's Irish Pub, which was super fun. We got soaked on the way there since it rained so much. It is the rainy season indeed! It was nice to sit under the fans at Gary's and dry off while eating hamburgers. We played an egregious game of pool that took 45 minutes before calling it a night. 
+
+Tomorrow we are going hiking, which will be so much fun!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
