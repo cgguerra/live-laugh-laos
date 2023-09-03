@@ -52,7 +52,9 @@ I was hot and tired after being outside in the heat for most of the day. I'm sur
 
 ## Night Market 
 
-I definitely had my daily serving of adventure today! (And I will be very sore tomorrow.)
+We went to the Night Market tonight just to see how it was. We all bought matching Beer Lao t-shirts. (I don't drink beer since I don't like carbonation, but I was all for matching group t-shirts.) Hannah, Christina P., and I got muscle shirts to wear to Zumba and the gym. I got mine in burnt orange!
+
+I definitely had my daily serving of adventure today! (And I will be very sore tomorrow.) 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
