@@ -1,12 +1,46 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Labor Day Weekend in Vang Vieng
+categories: [sights]
 ---
 
-This my first post. 
+Today we took the 11:00 a.m. train to Vang Vieng, a city an hour north of Vientiane, and did some exploring. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Bullet Train 
+
+We left the train station at exactly 11:00 a.m., so the train was definitely not running on Lao time. The bullet train is only two years old, and is operated by the Laos-China Railway Company. The train has many pictures of the Frangipani flower (called "Dok Champa" in Lao) which is the national flower of Laos.
+
+Read more about the [Laos-China Railway Line](https://laostravel.com/express-train-for-laos-china-railway/)
+
+## Traveling around Vang Vieng
+
+We got to our hotel and settled in before going to explore. Vang Vieng is known for its striking limestone mountains, caves, and riverbanks. Vang Vieng is a popular tourist destination for its natural beauty. 
+
+Read more about [Vang Vieng's natural beauty](https://www.discoverlaos.today/vang-vieng/thing-to-do/explore-vang-vieng-a-natural-marvel)
+
+![mountains](https://lh3.googleusercontent.com/pw/AIL4fc_N7t8gdpYlH_uAWnYyej9SFJQdrsw7D-elvByW3UgQvXBsxB6tXZbpSZ5Y9WAlgAVLrt6pKsEEKZwAQo_dA32fEBQsEM_-Ox-PfRbac7RqkTZ2AMvG=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+There are mountains everywhere in Vang Vieng. 
+
+ We rented a buggy and drove to to the first Blue Lagoon (there are 5 total) to go swimming and cool down. We saw many signs cautioning us to drive slowly since there were cows who wandered across the road. They caused so many traffic jams!
+
+![cows on the road](https://lh3.googleusercontent.com/pw/AIL4fc8ZrOre9OEAlJYyJBW4wxu3wOlZLGXMIoOQYSAlAV_qUZlcGgzqlYCa4yRSPASWOyu1EzWP7fdr-ipcRt-owVYu3Y6spcfLzCPIVEKDz05xZMDMJZ7G=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+We passed these cows on the road. In general, cows are not fenced in in Laos, so they're always wandering around.
+
+## The Blue Lagoon
+
+We went to the first Blue Lagoon and had a great time. There were lots of fish in the river that kept nibbling my toes. I really didn't like that, so I sat on the side of the river and just put my feet in the water. 
+
+![blue lagoon](https://lh3.googleusercontent.com/pw/AIL4fc8VjkYv2BFvVUhSJMI9BEELY5X78MnwRALugHrTD1P1If9-zfJOR3zM4W_YWN4_GI81lunr94YU6e-d3MN1qh5QZW6KjAWoQsw6tvyHca_Jzi1wxrUm=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+Tomorrow we are going kayaking, which will be so much fun!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  

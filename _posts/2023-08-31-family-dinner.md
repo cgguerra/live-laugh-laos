@@ -68,7 +68,7 @@ When we finished the meal we had nam wan ("nam" means "water" and "wan" means "s
 
 Read more about [nam wan](https://cgguerra.github.io/live-laugh-laos/sights/food/language/2023/08/25/sabaidee/)
 
-Surinyong said that he enjoyed hosting us, and hopes to see us again soon. I am grateful that he showed such generosity in organizing such an event and in inviting all of us. I hope to see him and the head monk again soon!
+Surinyong said that he enjoyed hosting us, and that he hopes that we come back soon. I am grateful that he showed such generosity in organizing such an event and in inviting all of us. I hope to see him and the head monk again soon!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
