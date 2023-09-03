@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Trailblazers @ Pha Ngern Trail
-categories: [sights, food]
+categories: [sights]
 ---
 
 Today Janus and I hiked Pha Ngern Trail in Vang Vieng. The trail was 4 miles long with steep elevation. We had some unforgettable views!
