@@ -1,10 +1,10 @@
 ---
 layout: post
-title: Trailblazers at Pha Ngern Trail
+title: Trailblazers at Big Pha Ngern Trail
 categories: [sights]
 ---
 
-Today Janus and I hiked Pha Ngern Trail in Vang Vieng. The trail was 4 miles long with steep elevation. We had some unforgettable views!
+Today Janus and I hiked Big Pha Ngern Trail in Vang Vieng. The trail was 4 miles long with steep elevation. We had some unforgettable views!
 
 ## Hiking Pha Ngern Trail
 
@@ -52,7 +52,7 @@ I was hot and tired after being outside in the heat for most of the day. I'm sur
 
 ## Night Market 
 
-We went to the Night Market tonight just to see how it was. We all bought matching Beer Lao t-shirts. (I don't drink beer since I don't like carbonation, but I was all for matching group t-shirts.) Hannah, Christina P., and I got muscle shirts to wear to Zumba and the gym. I got mine in burnt orange!
+We went to the Night Market tonight just to see how it was. We all bought matching Beer Lao t-shirts. (I don't drink beer since I don't like carbonation, but I was all for matching group t-shirts.) Max and Janus got shirts with short sleeves. Hannah, Christina P., and I got muscle shirts to wear to Zumba and the gym. I got mine in burnt orange! (Hook 'em horns!)
 
 I definitely had my daily serving of adventure today! (And I will be very sore tomorrow.) 
 
