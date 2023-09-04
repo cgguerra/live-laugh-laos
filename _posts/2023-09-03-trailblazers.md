@@ -6,7 +6,7 @@ categories: [sights]
 
 Today Janus and I hiked Big Pha Ngern Trail in Vang Vieng. The trail was 4 miles long with steep elevation. We had some unforgettable views!
 
-## Hiking Pha Ngern Trail
+## Hiking Big Pha Ngern Trail
 
 I was really excited to hike this trail since it has a stunning viewpoint and has terrain that I've never seen before. It was a rocky trail with much overhead shade. Regardless of the shade, I was sweating bullets. 
 
