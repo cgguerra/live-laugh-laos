@@ -1,56 +1,12 @@
 ---
 layout: post
-title: Kayaking on the Nam Song River
-categories: [sights, martial arts]
+title: From Vientiane with Love
+categories: [content, demo]
 ---
 
-Today Janus and I went kayaking on the Nam Song River. We were out on the river by 9:30 and kayaked for about an hour. 
+This my first post. 
 
-## There Were a Few Bumps in the Road
-
-We took a large tuk tuk to the company's boat shed in a relatively remote area. The road was bumpy and had many large potholes. There is a lot of flooding in the rainy season, and the rain washes away parts of the road. People fill the large potholes with gravel until the road can be fixed. As you can imagine, this flooding happens every year, so it takes quite a while to fix all the potholes. Even in Vientiane there are lots of potholes. They're just an all too common part of life in Laos. 
-
-![road vang vieng](https://preview.redd.it/274tf6glk6b21.jpg?auto=webp&s=b3c924a2dfa17688dc84121724e972c594671e0a)
-
-Courtesy of Reddit 
-
-I didn't take any pictures of the roads since I was enjoying the sights, but this is a nicer stretch of road in Vang Vieng. I'll leave it at that. 
-
-## Rolling on the River
-
-We got on the Nam Song river at 9:30. Our tour company didn't have anything regarding safety precautions. They at least gave us life jackets, but that was it. There was no safety briefing, which is what I expected since Laos is a place where you're expected to take care of yourself and find your own way. The company sent a guide with us, but he just paddled alongside us to ensure that we returned the kayak and beached in the right place. 
-
-The path was calm and straightforward. There were a few small rapids, but they were fun and nothing to worry about. I saw a total of one rock jutting out of the river. There were some amazing views of mountains along the river. I was surprised that there were so many trees on the faces of the sheer cliffs. 
-
-Swimming, hiking, and kayaking were relatively deserted since Vang Vieng is unpopular in August/September since they're some of the hottest months of the year. Vang Vieng is bustling in December since that's the peak of tourist season. 
-
-![kayaking discover laos today](https://www.discoverlaos.today/img/tour/3f6921288975b23bfacef73441231d41.png?p=original)
-
-Courtesy of Discover Laos Today
-
-I did not have a chance to take photos while I was on the river since my phone was in the wet bag. This was important since I got splashed with water more than a few times. 
-
-![traveling german on the river](https://www.travelinggerman.com/wp-content/uploads/2016/07/View-from-my-Kayak-730x410.jpg)
-
-Courtesy of Traveling German
-
-This is what my view looked like. We're currently in the middle of the rainy season, so the water level was much higher than normal. 
-
-## Mildly Entertaining
-
-![that one hotel](https://lh3.googleusercontent.com/pw/AIL4fc-2IZ5_yP-HxbGgKvtrUOdQpZ_IgxrtaPOw4oN2lTUbmG_AL8OeELTkkKXdhuK1T_0b2gfoePXRS1yKeHagEd2t8JIIihAyCQiU6m2-f6QB9fO157QR=w1000)
-
-Courtesy of Guerra, C. (2023)
-
-This has nothing to do with the rest of the blog post, but I found it mildly entertaining. We saw this hotel in town last night. This hotel has the longest name I've ever seen. The name quite literally spans from one end of the hotel to the other. So much so, that the Chinese characters had to sit next to the balcony on the top floor. 
-
-## Muay Lao Class
-
-We took the train back from Vang Vieng at 12:45. Christina P. wasn't feeling too great, so she would really like us to come back to Vang Vieng. I would love to return and go kayaking or hiking with her. Vang Vieng is also well-known for its caves, so hopefully we can see those when we return. Since Christina P. was not feeling great, she sadly could not join us for Muay Lao. 
-
-At Muay Lao we practiced punching quickly and focused more on the boxing aspect of training. We practiced footwork and staying light on our feet. One instructor had us turn more when striking with our shins. He told me that I should have my toes parallel to the attacker's rib cage with my foot just behind the armpit. Turning my body more helped me to generate more power and create more of an impact when striking with my shins. 
-
-We did 2 sets of 4 different ab exercises at the end. It was tough since it was hot (it's always hot in Laos), and I was already sore from hiking and kayaking this weekend. I am looking forward to improving on a week-by-week basis. 
+Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
