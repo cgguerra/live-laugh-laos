@@ -4,13 +4,23 @@ title: Welcome to the Rainy Season
 categories: [content, demo]
 ---
 
-Hello and welcome to the rainy season! Even though I've been in Laos for a little over a week in the midst of the rainy season, it didn't rain until today. It rained profusely! The rain just kept coming in big droplets and flooded some of the streets of Vientiane. The water was up to my ankles at the street by the hotel after only about 10 minutes of flooding. I didn't stick around to find out how much higher it would get. 
+Hello and welcome to the rainy season! Even though I've been in Laos for a little under three weeks in the midst of the rainy season, has only rained three times. It rained profusely this Thursday. The rain just kept coming in big droplets and flooded some of the streets of Vientiane. The water was up to my ankles at the street by the hotel after only about 10 minutes of flooding. I didn't stick around to find out how much higher it would get. 
 
 ![flooded street](https://lh3.googleusercontent.com/pw/AIL4fc_-Cbqtt_PWhE-U-Jpfkh2yHv9CioKChMA5WxgFj6PzjOhq1dms5QTLTpjt2q8gecKIZVuhV5bLsqW-NzAG-hEqvcv5PXalt8E5BDA6Ay4Rn7jEoSXv=w1000)
 
 Courtesy of Guerra, C. (2023)
 
-I know this street doesn't look very flooded, but it definitely was! This was a low spot by the hotel. My sneakers were completely soaked. 
+I know this street doesn't look very flooded, but it definitely was! This was a low spot by the hotel. My sneakers were completely soaked.
+
+The difference between rain in the United States and the rain in Laos is that the rain in Laos comes in heavy droplets in intense showers. Even if it rains for only ten minutes, low points in the street are usually flooded. If it rains for an hour or more, anyone walking outside will be completely soaked in a matter of minutes. There's a reason that Laos has so many vibrant green plants!
+
+## The End of the Rainy Season
+
+I woke up this morning to pitter patter of raindrops on my window. It was very relaxing. (Perhaps because I was inside instead of outside while the rain shower was occurring.) However, the rainy season is not supposed to last for much longer. By October, the rains will stop and the dry season will begin. The temperature will become much cooler and perhaps, just perhaps, the humidity in the air will decrease slightly. 
+
+## Sunday Dinner with Christina P.'s Uncle
+
+
 
 
 
