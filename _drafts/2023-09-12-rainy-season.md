@@ -1,12 +1,22 @@
 ---
 layout: post
-title: From Vientiane with Love
+title: Welcome to the Rainy Season
 categories: [content, demo]
 ---
 
-This my first post. 
+Hello and welcome to the rainy season! Even though I've been in Laos for a little over three weeks in the midst of the rainy season, it has only rained four times. It rained profusely last Thursday. The rain just kept coming in big droplets and flooded some of the streets of Vientiane. The water was up to my ankles at the street by the hotel after only about 10 minutes of flooding. I didn't stick around to find out how much higher it would get. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+![flooded street](https://lh3.googleusercontent.com/pw/AIL4fc_-Cbqtt_PWhE-U-Jpfkh2yHv9CioKChMA5WxgFj6PzjOhq1dms5QTLTpjt2q8gecKIZVuhV5bLsqW-NzAG-hEqvcv5PXalt8E5BDA6Ay4Rn7jEoSXv=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+I know this street doesn't look very flooded, but it definitely was! This was a low spot by the hotel. My sneakers were completely soaked.
+
+The difference between rain in the United States and the rain in Laos is that the rain in Laos comes in heavy droplets in intense showers. Even if it rains for only ten minutes, low points in the street are usually flooded. If it rains for an hour or more, anyone walking outside will be completely soaked in a matter of minutes. There's a reason that Laos has so many vibrant green plants!
+
+## The End of the Rainy Season
+
+I woke up this morning to pitter patter of raindrops on my window. It was very relaxing. (Perhaps because I was inside instead of outside while the rain shower was occurring.) However, the rainy season is not supposed to last for much longer. By October, the rains will stop and the dry season will begin. The temperature will become much cooler and perhaps, just perhaps, the humidity in the air will decrease slightly. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
