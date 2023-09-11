@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Celebrate! (It Would Be So Nice!)
-categories: [culture]
+categories: [culture, food]
 ---
 
 Today we had Sunday dinner with Christina P.'s cousin. He was celebrating his promotion since he is the new head of police at his local station. There were many dishes prepared and many family members who wanted to come and celebrate Christina P.'s cousin. 
