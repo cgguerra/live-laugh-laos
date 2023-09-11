@@ -14,7 +14,7 @@ I love Laos, and I hope that you do too after reading this blog!
 
 ![I heart Laos](https://lh3.googleusercontent.com/pw/AIL4fc-vsLgePgm6a_1SUGSSLNoIw0BCA--e3k_qP0jh32Lfg-nVe5AF2nPhLxRs58C6cr81qhxFG-OPntBQmMy1NSmPImW_HSOL8OstJE2l1FLKj8OIhi-e=w500)
 
-Guerra, C. (2023)
+Courtesy of Guerra, C. (2023)
 
 ## Acknowledgements
 I want to thank Dr. Jeffrey Witt of Loyola University Maryland for offering (tech) support as I learned to edit in Jekyll and for downloading this template and several applications to my computer. This website would not exist without his help!
