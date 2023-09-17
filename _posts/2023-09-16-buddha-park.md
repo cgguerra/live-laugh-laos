@@ -6,7 +6,6 @@ categories: [Buddhism, sights]
 
 Today we went to Buddha Park to see the sights and enjoy one of Vientiane's most popular tourist destinations. 
 
-
 ## Another One Rides the Bus
 
 Riding the bus in Laos may sound mundane, but it is actually quite different from the U.S. in some ways. When you arrive at the bus station, you immediately get on your bus without prepaying for a ticket. You wait on the bus, and it eventually starts to move with the doors open. The bus pulls out of the station with the doors open and only closes them once it hits the main road. The doors remain open for a longer period of time to allow people waiting outside the station to jump on before the bus fully leaves. The Lao bus doesn't leave on time, which I fully expected since everything is on Lao time here. 
