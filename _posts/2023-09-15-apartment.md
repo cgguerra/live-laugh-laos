@@ -30,9 +30,11 @@ Today was also the last day of teacher training and Lao classes. I will begin ta
 
 For those of us located in Vientiane, we will continue teaching classes at the American Center for the next two weeks. I have some exciting lessons planned about the importance of baseball in American culture, the myth of the Wild West, wildlife in the U.S., and more. I would like to teach my students to sing "Take Me Out to the Ballgame" and teach them to dance the Cotton-Eyed Joe. Of course we will practice the essential skills of reading, writing, listening, and speaking, but I believe it's important to have cultural elements that break up the long periods of hard work that are part of learning a foreign language, especially since these classes are one-offs and I won't see all of these students again. I want my students to have a fun and memorable English language learning experience more than anything. 
 
-![that dam AC](https://www.google.com/url?sa=i&url=https%3A%2F%2Fm.facebook.com%2Fusembassyvte%2Fphotos%2Fa.178392124915%2F10153836622569916%2F&psig=AOvVaw1JS6Nhcdfdli0eAim91wur&ust=1695040345437000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNCx-sHTsYEDFQAAAAAdAAAAABAE)
+![mural behind the AC](https://lh3.googleusercontent.com/pw/AIL4fc-fRCVUVZ8X1D8BZe_tAnHOhwSZHHU4xmF_AottWT_P3BBSGDs0W1Tf0owy0AmQ6sgIf6lMmqalovk3s9yOGqurtZx9SHnl7Vmo0puT7YlW2xA3KNbB=w1000)
 
-Courtesy of the American Embassy
+Courtesy of Guerra, C. (2023)
+
+The mural behind the American Center
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
