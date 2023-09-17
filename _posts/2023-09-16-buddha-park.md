@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Saturday in the Park with Buddha
-categories: [Buddhism, sights]
+categories: [Buddhism, sights, daily life]
 ---
 
 Today we went to Buddha Park to see the sights and enjoy one of Vientiane's most popular tourist destinations. 

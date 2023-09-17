@@ -1,12 +1,12 @@
 ---
 layout: post
-title: Hello World
+title: From Vientiane with Love
 categories: [content, demo]
 ---
 
 This my first post. 
 
-Hello world!
+Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
