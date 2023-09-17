@@ -22,7 +22,7 @@ This is my apartment building.
 
 Laos also does not have dishwashers or dryers, so everything has to air dry. Lao people do not use ovens on a large scale, so if you want an oven in your home or apartment, you need to purchase a toaster oven. I was surprised that most Lao homes do not use ovens. It did not occur to me that ovens were unnecessary for cooking traditional Lao dishes. 
 
-Most Lao apartments have maids that come and clean your apartment as part of the contract. It's completely normal to have a maid here. The maid at my apartment building comes twice a week, but I'm not really expecting her to do too much considering she has hundreds of room to clean and I know she's on a tight schedule. I'll do my own cleaning for the most part, which is fine by me. 
+Most Lao apartments have maids that come and clean your apartment as part of the contract. It's completely normal to have a maid here. The maid at my apartment building comes twice a week, but I'm not really expecting her to do too much considering she has hundreds of room to clean and I know she's on a tight schedule. I'll do my own cleaning, which sounds good to me. 
 
 ## Last Day of Teacher Training Classes
 
