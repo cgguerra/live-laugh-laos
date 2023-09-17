@@ -108,7 +108,7 @@ A fountain with four faces surrounded by dancing women
 
 Courtesy of Guerra, C. (2023)
 
-An interesting staircase to the top of a temple-like structure. Christina P. climbed to the top and said there wasn't anything inside the room at the top. 
+An interesting staircase to the top of a temple-like structure. Christina P. climbed to the top and said there wasn't anything inside the room up there. 
 
 ![meditating figure](https://lh3.googleusercontent.com/pw/AIL4fc_qK5N8usr_LxD0xmvJG-8H7A1u81h83WBgkkGu6J9hxS9on7jZv3MBzul31gvk-5PGSHIPr2trecD0DqjeGqfEvj4wKK53YzJUpec7xTxn2E5Dlvfc=w1000)
 
@@ -125,7 +125,7 @@ And finally, my favorite: a man trying to get his lazy cricket to get up.
 
 ## The Rest of the Evening
 
-After we took the bus back, we got smoothies and had Thai food at this great place called Salavan. (The restaurant is named after a province in Laos that borders Thailand.) We walked back and saw Nam Phou (a famous Lao fountain) working. I was excited since I haven't seen it in action once in the whole month I've been here. 
+After we took the bus back, we got smoothies and had Thai food at this great place called Salavan. (The restaurant is named after a province in the south of Laos that borders Thailand.) We walked back and saw Nam Phou (a famous Lao fountain) working. I was excited since I haven't seen it in action once in the whole month I've been here. 
 
 ![Nam Phou](https://lh3.googleusercontent.com/pw/AIL4fc-fycf03aQNrQrclAoVbjJTHe0Rdo77X9z4VaOFBpoZId2YmZ1_8087sgxkpeCxsDSOhBpDWtjU00eEjVGe73chOIs3eg3GIEEezNHDqjQdStllms-e=w1000)
 
