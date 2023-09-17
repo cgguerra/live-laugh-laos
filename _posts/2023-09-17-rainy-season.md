@@ -1,10 +1,10 @@
 ---
 layout: post
-title: Welcome to the Rainy Season
+title: Welcome to the Rainy Season (We've got fun and games)
 categories: [culture, daily life]
 ---
 
-Hello and welcome to the rainy season! Even though I've been in Laos for a little over a month in the midst of the rainy season, it has only rained seven times. It has rained profusely several times. 
+Hello and welcome to the rainy season! Even though I've been in Laos for a little over a month in the midst of the rainy season, it has only rained seven times. It has rained profusely several times. I'm lucky that I brought an ereader, a German textbook, and a yoga mat to keep busy inside while it rains. 
 
 The photo below is from two weeks ago. The rain just kept coming in big droplets and flooded some of the streets of Vientiane. The water was up to my ankles at the street by the hotel after only about 10 minutes of flooding. I didn't stick around to find out how much higher it would get. 
 
