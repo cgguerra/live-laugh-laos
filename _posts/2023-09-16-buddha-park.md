@@ -22,7 +22,7 @@ I thought that the Lao bus would be slow, but I was actually pleasantly surprise
 
 ## Buddha Park
 
-We arrived at Buddha Park and paid 40,000 kip each since we're foreigners. (Lao people only have to pay 10,000 kip each.) Buddha Park is known for its wide variety of Buddha and Buddhist statues and is famous for a massive statue of a reclining Buddha. One of the most popular things to do is to climb to the top of a structure in the at the beginning of the park. You enter through the open mouth and go up several sets of stairs to reach the top. 
+We arrived at Buddha Park and paid 40,000 kip each since we're foreigners. (Lao people only have to pay 10,000 kip each.) Buddha Park is known for its wide variety of Buddha and Buddhist statues and is famous for a massive statue of a reclining Buddha. One of the most popular things to do is to climb to the top of a structure located towards the beginning of the park. You enter through the open mouth and go up several sets of stairs to reach the top. 
 
 ![whole structure](https://lh3.googleusercontent.com/pw/AIL4fc9uCwleYSmqjy_xZL9fpiVscNjVzjkklcFsbLN5njbqc14u0FJOUucT3qFYg0CdwlrfxdRxD4WsfuvEC3kXgUUJJdPLmCHCrkAaEBRtqZeRAHQ8GEce=w1000)
 
