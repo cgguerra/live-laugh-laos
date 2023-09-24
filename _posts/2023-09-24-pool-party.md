@@ -1,12 +1,34 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Pool Party
+categories: [daily life]
 ---
 
-This my first post. 
+Today I had office hours for an hour and a half in the morning. In the evening, we had a pool party to celebrate Hannah and Janus before they leave for Pakse tomorrow.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Fried Chicken
+
+I made fried chicken with egg, panko breadcrumbs, and salt for the party. I fried the nuggets in sunflower oil because it's more inexpensive than vegetable oil here, and because it gave the chicken a nice golden brown color. I learned how to make Chick-fil-A sauce and made a batch for our party. The chicken and Chick-fil-A sauce were a big hit with my fellow ETAs. Someone said it reminded them of home, which was nice. 
+
+Make [Chick-fil-A sauce](https://www.thelazydish.com/easy-homemade-copycat-chick-fil-a-sauce-recipe/) at home 
+
+My apartment has a rather large pool, which is nice since it is hot almost year round in Laos. Laos doesn't seem to have many pools. It seems like the only places that have pools are fancy hotels and my apartment building, which was built by a Chinese company. 
+
+## See You Soon, Dear Friends!
+
+Tomorrow Hannah and Janus leave for Pakse, Champasak. They will be teaching English at the University of Champasak. They are staying in a hotel for a week or so before they search for permanent housing. 
+
+ ![Champasak university](https://entrance.slms-cu.edu.la/static/media/mojor.43847f4d.jpg)
+
+ Courtesy of Ehoo.store
+
+ Hannah and Janus will come back to Vientiane in a October for our group trip to Luang Prabang for the Boat Racing Festival and then in November for the Marine Ball. Hopefully we will all spend Thanksgiving together in Pakse at Hannah and Janus's house. There is also the possibility that a Disney executive who worked on *Raya and the Last Dragon* will visit Pakse in November, and we might go to the workshops while we're there for Thanksgiving, which is exciting. (This was a wonderful opportunity that the ETAs last year had, so we might have a similar opportunity, so I'm told.)
+
+ ![raya and the last dragon](https://static.wikia.nocookie.net/0c158349-248e-475b-8266-dbd3a41bff01)
+
+ Courtesy of Disney
+
+ Either way, we will see our friends again soon! 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
