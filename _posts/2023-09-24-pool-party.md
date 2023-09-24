@@ -8,6 +8,14 @@ Today I had office hours for an hour and a half in the morning. In the evening, 
 
 ## Fried Chicken
 
+I went to the store across the street to buy chicken for the party, and I had to bag it myself. I finally took a picture!
+
+![diy bag chicken](https://lh3.googleusercontent.com/pw/ADCreHcSd4OwWmnPm4tGEuCOdvqf1aMQnr0DzRzHes8jUd6pDOlxc6Vk_6Q3RG2cxttb3HJFcI0Aix8oh9H8zBCDK3oPkcA3_hV8hnVsH9_5t5VsX0JHVv9P=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+In Laos, you always self serve your chicken. Sometimes you self serve some pork products as well. 
+
 I made fried chicken with egg, panko breadcrumbs, and salt for the party. I fried the nuggets in sunflower oil because it's more inexpensive than vegetable oil here, and because it gave the chicken a nice golden brown color. I learned how to make Chick-fil-A sauce and made a batch for our party. The chicken and Chick-fil-A sauce were a big hit with my fellow ETAs. Someone said it reminded them of home, which was nice. 
 
 Make [Chick-fil-A sauce](https://www.thelazydish.com/easy-homemade-copycat-chick-fil-a-sauce-recipe/) at home 
