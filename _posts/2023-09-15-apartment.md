@@ -8,7 +8,7 @@ Today I moved into my apartment in Vientiane and settled into my new home for th
 
 ## Differences in Apartment Lifestyles in Laos
 
-I just moved in today, and I learned that in Laos, people pay for their water and electricity *before* they use it. So essentially, you have a meter per apartment and you have to pay to load it with watts and gallons of water. I paid 200,000 kip to cover the cost of both for around 2 to 3 months. 
+I just moved in today, and I learned that in Laos, people pay for their water and electricity *before* they use it. So essentially, you have a meter per apartment and you have to pay to load it with watts and gallons of water. I paid 200,000 kip to cover the cost of electricity for about a month or so.  
 
 Laos is different than the U.S. because most apartments come fully furnished and include sheets, pillows, and cooking necessities (e.g., a rice cooker, forks, plates, bowls, etc.). All I really had to buy was a knife, a cutting board, and another bowl. I also bought a pitcher for juice since it's proving quite difficult to stay hydrated here, despite all the water, juice, and smoothies that I drink. Hopefully the pitcher will encourage me to drink more juice or flavored electrolyte packets at home.
 
