@@ -18,7 +18,9 @@ In Laos, you always self serve your chicken. Sometimes you self serve some pork 
 
 I made fried chicken with egg, panko breadcrumbs, and salt for the party. I fried the nuggets in sunflower oil because it's more inexpensive than vegetable oil here, and because it gave the chicken a nice golden brown color. I learned how to make Chick-fil-A sauce and made a batch for our party. The chicken and Chick-fil-A sauce were a big hit with my fellow ETAs. Someone said it reminded them of home, which was nice. 
 
-Make [Chick-fil-A sauce](https://www.thelazydish.com/easy-homemade-copycat-chick-fil-a-sauce-recipe/) at home 
+Cook [copycat Chick-fil-A nuggets](https://thestayathomechef.com/chick-fil-a-nuggets/) at home
+
+Make homemade [Chick-fil-A sauce](https://www.thelazydish.com/easy-homemade-copycat-chick-fil-a-sauce-recipe/) 
 
 My apartment has a rather large pool, which is nice since it is hot almost year round in Laos. Laos doesn't seem to have many pools. It seems like the only places that have pools are fancy hotels and my apartment building, which was built by a Chinese company. 
 
