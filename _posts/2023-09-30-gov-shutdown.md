@@ -1,12 +1,25 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Government Shutdown
+categories: [teaching]
 ---
 
-This my first post. 
+Today is the last day of teaching at the American Center until the government shutdown ends. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## How This Affects Laos
+
+Today I will judge a competition for Peer2Peer, a student-led organization at the American Center that allows Lao students to meet up and practice conversations amongst themselves. Peer2Peer also helps with the Education Fair and has mock debates for students to practice English. 
+
+![american center photo](https://la.usembassy.gov/wp-content/uploads/sites/85/2016/04/American-Center.jpg)
+
+Courtesy of the American Embassy
+
+Unfortunately, since the government will shut down on Sunday, no groups can meet at the American Center until everything is resolved. The American Center will be closed to the public, so the staff will create flyers and brainstorm ideas for new interactive sessions in the meantime. Fortunately, the local staff will still be paid for their work and planning while the government is shut down. There is a Lao law that states that workers must be paid if foreign governments close temporarily. 
+
+## When Everything Will Reopen
+
+The American Center will be closed for the next week until the government reopens. I will plan lessons for when the American Center reopens, and take up some hobbies. My friend Elspeth, a Luce Fellow working for an NGO in Laos, and I are going to zumba next week. I am also going to Muay Lao on Wednesday. I will try to keep busy while the American Center is closed. 
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
