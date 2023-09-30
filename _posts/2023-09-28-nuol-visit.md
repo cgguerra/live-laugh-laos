@@ -6,7 +6,7 @@ categories: [teaching, daily life]
 
 Today Max and I had our second day of faculty orientation at the university. 
 
-## Traveling to NUOL
+## Traveling to the National University of Laos (NUOL)
 
 Max and I had to be at the university at 8:30, so we took the bus from the station by Talat Sao to the Faculty of Letters and left at 7:45. It took about 40 minutes to arrive. I thought the bus made pretty good time. The bus traveled about 7 miles to get us to our final destination at the end of the line. 
 
