@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Teacher's Day
-categories: [teaching, daily life, food]
+categories: [teaching, daily life, food, culture]
 ---
 
 Today Max and I went up to NUOL to celebrate Teacher's Day with the Faculty of Letters. 
