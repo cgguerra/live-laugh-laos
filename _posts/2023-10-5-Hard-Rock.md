@@ -1,12 +1,33 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Hard Rock Café
+categories: [sights]
 ---
 
-This my first post. 
+Today was Max's birthday, so we all celebrated by going to Hard Rock Café in downtown Vientiane. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## They're Everywhere
+
+Max wanted to go to Hard Rock Café since it's odd that there's one in Laos. He thought it would be fun since they have live music several nights a week. However, once we sat down and looked at the menu, we saw that Hard Rock had U.S. prices and not Lao prices. A basic hamburger and fries cost 250,000 kip ($12.50), which is insane in Laos. For reference, 250,000 kip is a little over half of my grocery spending for the week, which is higher because I try to only eat out once a week. No wonder it's always empty when I walk by! (A hamburger is considered to be expensive in Laos because it's hard to get cheese and buns, so they normally run around 100,000 kip.)
+
+![hard rock outside](https://www.tourismlaos.org/wp-content/uploads/2023/02/Hard-Rock-Cafe-Vientiane-696x364-1.jpg)
+
+Courtesy of Tourism Laos
+
+I looked up Hard Rock locations online the next day since I was curious about how many there are around the world. They're everywhere! 
+
+See the [full list of Hard Rock locations around the world](https://www.hardrockcafe.com/locations.aspx)
+
+## Max's Birthday Dinner
+
+Max wanted to move to another restaurant, so we went to Sticky Fingers, which is owned by a nice Australian couple. We had an appetizer board with olives, cheese, bread, paté, grilled eggplant, tomatoes, hummus, pesto, and tzatziki. The cheese was such a delicacy! Cheese is expensive here, so I never buy it at the grocery store. I had fish and chips, which were so good. The fish was breaded with panko, which made it really light and crispy. 
+
+![sticky fingers laos](https://stickyfingers-laos2001.com/images/our%20story/our.jpg)
+
+Courtesy of Sticky Fingers
+
+Max is celebrating his birthday by going to Pakse this weekend before school starts on Monday. A very happy birthday to Max!
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
