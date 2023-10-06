@@ -1,12 +1,60 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Teacher's Day
+categories: [teaching, daily life, food]
 ---
 
-This my first post. 
+Today Max and I went up to NUOL to celebrate Teacher's Day with the Faculty of Letters. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Phone Plans in Laos
+
+Before I left for NUOL, I paid for my phone plan for half the month. Paying for phone plans in Laos is very different from how we do it in the U.S. In Laos, if you use UNITEL, one of several providers, you download LaoApp. Then, you buy scratch off cards for 20,000 kip each and put the codes in your phone. This adds kip to your account. After you have 50,000 kip or more in your account, you can buy 30 GB of data on the app. 
+
+![lao scratch off](https://lh3.googleusercontent.com/pw/ADCreHc-Ez1QXvstv9csfap7UzGLh1ci8Zo4lLZi9GqlLHjifT_qyqtx6rledY1GJY0qPLUu8nGXa6tOFwuIVnlRoqAZ_Tym03kzttU_bVjMB0P7I5GH6MTB=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+Scratch off UNITEL data cards 
+
+If you want to text in Laos, you have to use Whatsapp. IMessage charges you per text here. You can call internationally, but UNITEL will charge you by the minute if *you* call someone. If someone abroad calls you and you answer, there's no charge. 
+
+## Celebrating with the Faculty of Letters
+
+Teacher's Day is a big deal in Laos. Every school celebrates and there are special deals for teachers at certain restaurants. Elementary school students perform for their teachers and learn dances or songs to thank their teachers for their hard work.
+
+At the NUOL celebration, the faculty brought out lots of traditonal Lao food. They brought out beef larb, fish larb, grilled pork, sticky rice, raw beef with mint (a popular rural dish), Lao salad, and fish curry. 
+
+![food at teacher's day](https://lh3.googleusercontent.com/pw/ADCreHdnBJrHcu8g2AQpgwRvRLWEA9XewbjeDpDHtcurhznsn7prqMX-AWfdsns7NuFSy-8uh7mvJxX9mjizsYLnSOQYWeyImMGf8FuZXOiAcH-eG6DzVFxV=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+From left to right: raw beef, grilled pork, beef larb, and sticky rice
+
+This was a Lao-style celebration, so the faculty brought Beer Lao and Somersby Sparkling Apple Juice. According to my male colleagues, Somersby is really popular with Lao women since it is light and sweet and tastes like alcoholic apple juice. Though, I'm sure plenty of Lao women drink Beer Lao and Lao whiskey as well.
+
+ I don't like anything carbonated and am generally not a big fan of alcoholic beverages, but I had a Somersby because everyone kept insisting. I'm normally not one to give into peer pressure, but Lao culture insists that everyone drinks at parties. I didn't feel like resisting too much today, so I had 3/4 of one drink. I kept my can near me and had a small cup with ice filled with alcohol. Whenever anyone insisted that I have another, I pointed to my can and said that I already had a drink. Even when I said that I didn't want another one, people gave me Somersby cans, which I just didn't open. 
+
+ Lao people like to toast a lot at parties. We toasted our colleagues every 5-10 minutes. 
+
+ ![Somersby](https://www.shopping-d.com/cdn/shop/products/WhatsAppImage2021-10-01at11.52.16_512x512.png?v=1633066569)
+
+ Courtesy of Shopping-D Service Platform
+
+Read more about [differences in serving alcohol at celebrations in Laos and the U.S.](https://cgguerra.github.io/live-laugh-laos/culture/food/2023/09/10/christina-p-cousin/)
+
+## Dairy Queen
+
+Max and I left around 1:30 and caught the bus back to the station at Talat Sao. It has been especially hot in Laos recently, so we went to Parkson (i.e.,the mall) for ice cream. I've never actually been to the Dairy Queen in the mall. They have ice cream, blizzards, and hot dogs, but no fried foods since fryers take up a lot of space. I got a chocolate brownie Blizzard, which was so good. It cost 50,000 kip, which is expensive for an ice cream in Laos. 
+
+I usually spend 8,000-12,000 kip for a Thai or Indonesian ice cream bar at the store. You have to buy the bars one by one since they don't sell them in boxes of 4 or 6 here. Tubs of ice cream are imported here. If you want a tub of ice cream, you buy Häagen-Dazs here, which is very expensive since it's imported from the U.S.  
+
+Read about how [the name "Häagen-Dazs" means absolutely nothing](https://www.rd.com/article/haagen-dazs-ice-cream-secret-behind-name/)
+
+![dairy queen](https://lh3.googleusercontent.com/pw/ADCreHfyYcSsRcIE8YKwp9VSWSMeGVvNr5cTg08ahNoRk6EpbmLcqImBQk8EWCB4FBrRZAsQAJKg1GuFzFc_ztiTbiQkX6mico4Ur_ZfZdL2lMigfFlK_gjQ=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+I was so happy to have a taste of home!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
