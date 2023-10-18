@@ -1,12 +1,38 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Art Exhibit at Parkson
+categories: [art]
 ---
 
-This my first post. 
+Today I went to an art exhibit at Parkson, the large mall near me. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Art Exhibit
+
+This art exhibit was sponsored by a European car company and included works from Lao artists, people from ethnic communities in Laos, and one artist from France. The exhibit filled two floors in one wing of the mall. Interestingly enough, the organizers decided to display the works in empty shops in a mostly deserted part of the mall. Many units had several different colors for one wall. 
+
+Many works included images of elephants, monks, and Lao women wearing traditional sinhs. Artists wrote about their love of tradition and how they loved celebrations that brought their families together. I've included some of my favorite images below. 
+
+![wall of art](https://lh3.googleusercontent.com/pw/ADCreHcDqXzu3ap6IQoo0o4z75C5MgCke9UsJZ-Ol0DlKRU7iloDTK5lwsjaBDfFpcpag_-CgSblKMGS4fE-3vFpdt97pg347nLkKwNrTmRiH0pKyC-JTZ1W=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+![woman cooking](https://lh3.googleusercontent.com/pw/ADCreHdEZd0OmgJRUR3olMCl3JLsGoqYUn366vKxw3vbNrjFIiYQ2o7uDZhQOZGVJOeFvVBAMMs2h7GKnZ_5CNz_vvMO7rfdmndyeIsnY-dARx05Y5TyTMFt=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+## Home Cook Extraordinaire
+
+I went home and made fried chicken since it was a Friday. I've made Chick-Fil-A chicken before, but this time I decided to marinate my chicken in buttermilk and egg for 30-45 minutes, which made it even more tender. I would have coated it in a mixture of panko, paprika, onion, and garlic powder if I had spices. Panko is all I have, so that's what I used. 
+
+I cut the potatoes thin and soaked them in water for 2 hours to get rid of some of the extra starch and make the fries crispier. Making the Chick-fil-A sauce was easy since it's just honey, mayo, mustard, and barbeque sauce. I also made homemade pickles since I've only seen gherkins here (i.e. a small green fruit related to a cucumber). It was really easy, and the pickles were ready 2 days later. 
+
+Make your own easy [bread and butter refrigerator pickles](https://www.allrecipes.com/recipe/230227/monas-easy-refrigerator-pickles/)
+
+Note: I used 1/2 the amount of sugar that this recipe requires. 
+
+![chick-fil-a meal](https://lh3.googleusercontent.com/pw/ADCreHcbRe2_Z_WoSaRqWYs_ktTb784ATyHBEOnV3yvLA_WHnblC_nUmVoXhhIxpUKTukK3n6fL8eMDf7ciPRBtJgnFX2FH_umIkRzc8tWXj_L29bXe6wYom=w1000)
+
+Courtesy of Guerra, C. (2023)
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
