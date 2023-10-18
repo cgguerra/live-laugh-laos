@@ -26,7 +26,7 @@ Max wanted to move to another restaurant, so we went to Sticky Fingers, which is
 
 Courtesy of Sticky Fingers
 
-Max is celebrating his birthday by going to Pakse this weekend before school starts on Monday. A very happy birthday to Max!
+Max is celebrating his birthday by going to Pakse this weekend before school starts on October 16th. A very happy birthday to Max!
 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
