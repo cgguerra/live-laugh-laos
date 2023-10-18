@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Art Exhibit at Parkson
-categories: [art]
+categories: [art, food]
 ---
 
 Today I went to an art exhibit at Parkson, the large mall near me. 

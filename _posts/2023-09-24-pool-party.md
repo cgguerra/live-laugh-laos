@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Pool Party
-categories: [daily life]
+categories: [daily life, food]
 ---
 
 Today I had office hours for an hour and a half in the morning. In the evening, we had a pool party to celebrate Hannah and Janus before they leave for Pakse tomorrow.
@@ -32,7 +32,7 @@ Tomorrow Hannah and Janus leave for Pakse, Champasak. They will be teaching Engl
 
  Courtesy of Ehoo.store
 
- Hannah and Janus will come back to Vientiane in a October for our group trip to Luang Prabang for the Boat Racing Festival and then in November for the Marine Ball. Hopefully we will all spend Thanksgiving together in Pakse at Hannah and Janus's house. There is also the possibility that a Disney executive who worked on *Raya and the Last Dragon* will visit Pakse in November, and we might go to the workshops while we're there for Thanksgiving, which is exciting. (This was a wonderful opportunity that the ETAs last year had, so we might have a similar opportunity, so I'm told.)
+ Hannah and Janus will come back to Vientiane in October for our group trip to Luang Prabang for the Boat Racing Festival and then in November for the Marine Ball. Hopefully we will all spend Thanksgiving together in Pakse at Hannah and Janus's house. There is also the possibility that a Disney executive who worked on *Raya and the Last Dragon* will visit Pakse in November, and we might go to the workshops while we're there for Thanksgiving, which is exciting. (This was a wonderful opportunity that the ETAs last year had, so we might have a similar opportunity, so I'm told.)
 
  ![raya and the last dragon](https://static.wikia.nocookie.net/0c158349-248e-475b-8266-dbd3a41bff01)
 
