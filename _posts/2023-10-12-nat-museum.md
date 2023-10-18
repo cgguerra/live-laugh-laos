@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The National Museum of Laos
-categories: [sights, history, art]
+categories: [sights, history, art, Buddhism]
 ---
 
 Today I visited the National Museum of Laos in Vientiane. 
@@ -87,7 +87,7 @@ A complete manuscript of the Ramayana
 
 I did not take any pictures of the Vietnam War items since it was very painful to learn more about the damage that UXOs and bombs did to the Lao people. There were statues from student artists from Savannakhet University of decorated soldiers and other important political figures. 
 
-Finally, I stopped by the room with objects created by different ethnic groups throughout Laos. Many ethnic groups in Laos are known for creating beautiful textiles and celebratory wear from important celebrations. 
+Finally, I stopped by the room with objects created by different ethnic groups throughout Laos. Many ethnic groups in Laos are known for creating beautiful textiles and celebratory wear for important celebrations. 
 
 ![tribal outfit](https://lh3.googleusercontent.com/pw/ADCreHex3ULG1Qh8HB0Nfoihqdl5ENam-sReaPKSjHb5ssX6K1MKwNLvyKDWbdR0f4xvmHmD2qtsFo4-k3XwbdUtyRJYjU0a5VQTMJ3svIpW8fVX8MoD35oW=w1000)
 
