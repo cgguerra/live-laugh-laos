@@ -48,7 +48,7 @@ Courtesy of Guerra, C. (2023)
 
 A primitive Vietnamese metal detector used for finding scrap metal
 
-Another common cause of a bombie explosion is when families cook in on the dirt floor of a very basic house. These types of houses are mostly found in rural areas. A person could be cooking over a fire and a bombie buried underneath the ground could detonate from the heat, spreading shrapnel and killing or seriously maiming people within a 30 meter radius. 
+Another common cause of a bombie explosion is when families cook on the dirt floor of a very basic house. These types of houses are mostly found in rural areas. A person could be cooking over a fire and a bombie buried underneath the ground could detonate from the heat, spreading shrapnel and killing or seriously maiming people within a 30 meter radius. 
 
 Other instances in which bombs explode today include when children find the bombies and play with them thinking that they are toy metal balls and when people collect forest products.
 
