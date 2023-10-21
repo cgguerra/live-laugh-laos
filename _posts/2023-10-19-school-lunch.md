@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The Most Amazing (Cafeteria) Food in the History of Ever
-categories: [food, culture, language]
+categories: [food, culture, language, daily life]
 ---
 
 Recently I have been eating in the NUOL cafeteria for lunch, and it is some of the best food I've had for lunch in Laos.
