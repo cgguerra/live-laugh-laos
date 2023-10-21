@@ -14,7 +14,7 @@ The monks are not allowed to touch women at all, so they have to sit next to oth
 
 ![monks walking](https://s1.it.atcdn.net/wp-content/uploads/2015/04/Monks-800x600.jpg)
 
-Courtesy of Internationally Traveller
+Courtesy of International Traveller
 
 The monks all carry satchels with the Buddhist wheel on the front. Notice the bags that the monks carry in this picture.
 
