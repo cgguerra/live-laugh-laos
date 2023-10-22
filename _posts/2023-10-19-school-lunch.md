@@ -46,6 +46,18 @@ School lunch was absolutely delicious and some of the best food I've had in Laos
 
 Max and I met Pierre, a French volunteer, at lunch on Friday. Pierre was from Paris. When I told him that I was from Texas, he said "Oh! There is a Paris in Texas, no?" I was shocked! There is indeed a Paris, Texas! Why would he know that? 
 
+![Paris Texas](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ce/Map_of_Texas_highlighting_Lamar_County.svg/1200px-Map_of_Texas_highlighting_Lamar_County.svg.png)
+
+Courtesy of Wikipedia
+
+The town of Paris, Texas
+
+![Paris, TX Eiffel Tower](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/0a/f8/7f/79/eiffel-tower-with-red.jpg?w=1200&h=-1&s=1)
+
+Courtesy of Trip Advisor
+
+The Paris, Texas Eiffel Tower
+
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
 Feel free to delete this post when you are ready to publish your first post.  
