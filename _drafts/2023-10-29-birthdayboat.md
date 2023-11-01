@@ -1,10 +1,10 @@
 ---
 layout: post
-title: Luang Prabang, the Most Magical Place in Laos
-categories: [Buddhism, art, culture, holiday]
+title: Awk Pansaa
+categories: [Buddhism, art, culture, holiday, sights]
 ---
 
-Today I went to Phou Si, the Traditional Arts and Ethnology Center, the Night Market, and several wats. I also took a riverboat cruise on the Mekong with all the Fulbrighters, Princeton in Asia Fellows, and Luce Fellows to celebrate Christina P.'s birthday.
+Today I went to Phou Si, the Traditional Arts and Ethnology Center, the Night Market, and several wats. I also took a riverboat cruise on the Mekong with all the Fulbrighters, Princeton in Asia Fellows, and Luce Fellows to celebrate Christina P.'s birthday. Tonight is Awk Pansaa, the end of Buddhist Lent. 
 
 ## Phou Si
 
@@ -60,9 +60,19 @@ Courtesy of Guerra, C. (2023)
 
 ## The Traditional Arts and Ethnology Center (TAEC)
 
-After visiting Phou Si, we went to the TAEC in Vientiane. They had a special event that focused on making boats for the holiday, so we wanted tp participate. 
+After visiting Phou Si, we went to the TAEC in Vientiane. They had a special event that focused on making biodegradeable boats for the holiday, so we wanted to participate. We made our boats before going through the museum. The event was very popular, so we wanted to make sure that we could get a spot. I will talk more about the significance of the boats tomorrow when I send my boat down the river. 
+
+![my boat](https://lh3.googleusercontent.com/pw/ADCreHfDwFaoXBzMdRI8iMfVy9eK892tuOyt2rSTIU6MHjY0g_ptbXDgNM7ylg58BNq7hYlhIN60htz1M9MDTxDuAZQ--iOCfQkryUOjD6nV11INTXjxUnl0=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+My completed boat
+
+After I made my boat, I went through the TAEC museum. I saw many examples of clothing from ethnic groups throughout Laos. 
 
 Discover more about [TAEC's mission](https://www.taeclaos.org/)
+
+
 
 
 
