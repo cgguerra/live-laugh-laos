@@ -100,31 +100,35 @@ Courtesy of Guerra, C. (2023)
 
 A giant naga supporting 3 stupas with a lotus petal base
 
+Read more about [nagas](https://cgguerra.github.io/live-laugh-laos/monuments/history/sights/buddhism/art/spirit%20houses/2023/08/26/field-trip/)
+
 ![wat with lanterns](https://lh3.googleusercontent.com/pw/ADCreHe9ranb4Zf2Lb5GeH3uK0FkUDV9x60XkVFcTKXIssQzeJxHgLkajqpEOCJLmtQ5j4uIr5mgDLW_OYPshzYHw6J3IELmZQGtX8jhrBsC-5tScoyaHHWu=w1000)
 
 Courtesy of Guerra, C. (2023)
 
 A wat with beautiful star lanterns
 
-![paper lanterns in a courtyard]()
+![paper lanterns in a courtyard](https://lh3.googleusercontent.com/pw/ADCreHdYNUc7GNhy1aM3ad3-VC2-7IwUQ5giasrmWwvPUSPdQKOIxhyAEVlbzMEeObKmMZA7xyUxngyX7g62RR3g4xPDPaNAmJHXxAV_7iH7TTgXY8vfsPr8=w1000)
 
 Courtesy of Guerra, C. (2023)
 
 Paper lanterns in a wat's courtyard
 
-![me in a courtyard]()
+![me in a courtyard](https://lh3.googleusercontent.com/pw/ADCreHduJTjVE0rIsWp_4LgKOjYb2gGoABrU_T8PyHxIIKGR7J0UJYhZAidMR3LvqX9bkIQ0T8Q3V2dvkXlJ2pdAG9ZVg45LqodS2FlJdEp11XZnz2nvaFt4=w1000)
 
 Courtesy of Guerra, C. (2023)
 
 Me standing in a courtyard with paper lanterns
 
-![elephant beast lantern]()
+![elephant beast lantern](https://lh3.googleusercontent.com/pw/ADCreHdSg9-6eji1PnV6bmbidQkeCDr3HrtrED84Ic3MIF7xEh62ztJlpixTLbGWbhZKMl8ORu5DNunrhvQqpUMUKOKxJgHpsgpF9APbutkvvrUcHndcN83y=w1000)
 
 Courtesy of Guerra, C. (2023)
 
 An elephant beast lantern
 
-![Lao kom pim]()
+We met a woman named Pon tonight. She used to teach English at Dong Duk, and she ran the language lab there. 
+
+![Lao kom pim](https://lh3.googleusercontent.com/pw/ADCreHcZMjC4gwZODQp8OnnOTys7EUWh4N2EuCU-XCPLnEHZOTY5aYi3my17TAHhHqEigJB4o98Apv1HwDajdh9gN-S03zttpvG0SEeHCxvrwx0CMklzonTE=w1000)
 
 Courtesy of Guerra, C. (2023)
 
