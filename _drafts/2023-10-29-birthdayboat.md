@@ -72,7 +72,63 @@ After I made my boat, I went through the TAEC museum. I saw many examples of clo
 
 Discover more about [TAEC's mission](https://www.taeclaos.org/)
 
+## Riverboat Cruise
 
+At 6:00, all the Fulbrighters, Princeton in Asia Fellows, and Luce Fellows met at a boat on the Mekong. Our Fulbright researcher friend, Anna, has family in Luang Prabang who own a boat company. She and Christina organized a riverboat cruise and dinner for Christina's birthday. There were traditional Lao foods served on board like sticky rice, pork knuckles, a Lao beef jerky, and papaya salad. There were also French fries. 
+
+We all sang karaoke and had a great time. Towards the end, they brought out two cakes that everyone could share for Christina P.'s birthday. The views from the boat were beautiful before the sun set. I'm happy that I got to celebrate Christina P.'s birthday with her in such a meaningful way. 
+
+![sunset](https://lh3.googleusercontent.com/pw/ADCreHcJnDc3aqNaN3MAt4jdvNgDA3TWqYs91R9JyfvIOUdpwDpJuAnDi6xjO0n3r98TwKJ1tR8P3sgKMZjpRZ2BSoJ7puB3znDUqe5EnhN4bPxl8PGzTpFB=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+## Awk Pansaa
+
+After we got off the boat, we walked around the Night Market and went wat hopping. I didn't buy anything at the Night Market since I was focused on visiting as many wats as possible since they only have the paper lanterns up until tomorrow night. 
+
+We saw many beautiful paper lantern creations and probably visited 5 or 6 wats. I've included some of my favorite lantern creations below.
+
+![Buddha's wheel](https://lh3.googleusercontent.com/pw/ADCreHfeGlrtEks4yEnKkZ2MJzYxR8IkYfBvGSf89o6VbE5wU4drWD2sg3_tmgX3jb4PFKSsRkEcjwEWIwP4u_duBPSnGtoSqsEmCBQI2ZF6vKZ16pvLVn35=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+The wheel with 8 spokes, a sacred symbol of Buddhism
+
+![a giant naga](https://lh3.googleusercontent.com/pw/ADCreHccr6V4O59xNl47E9vyKZe7V5FdPFw0dIDjLwzqrHJTs01y2mfzHEg2CwY6SNycz4Tv0pcmcgqisme-Erymy_ZzXSRnd1h2GDMD1dsavDKRCYF2e0CH=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+A giant naga supporting 3 stupas with a lotus petal base
+
+![wat with lanterns](https://lh3.googleusercontent.com/pw/ADCreHe9ranb4Zf2Lb5GeH3uK0FkUDV9x60XkVFcTKXIssQzeJxHgLkajqpEOCJLmtQ5j4uIr5mgDLW_OYPshzYHw6J3IELmZQGtX8jhrBsC-5tScoyaHHWu=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+A wat with beautiful star lanterns
+
+![paper lanterns in a courtyard]()
+
+Courtesy of Guerra, C. (2023)
+
+Paper lanterns in a wat's courtyard
+
+![me in a courtyard]()
+
+Courtesy of Guerra, C. (2023)
+
+Me standing in a courtyard with paper lanterns
+
+![elephant beast lantern]()
+
+Courtesy of Guerra, C. (2023)
+
+An elephant beast lantern
+
+![Lao kom pim]()
+
+Courtesy of Guerra, C. (2023)
+
+A Lao kom pim
 
 
 
