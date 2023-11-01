@@ -1,12 +1,70 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: Luang Prabang, the Most Magical Place in Laos
+categories: [Buddhism, art, culture, holiday]
 ---
 
-This my first post. 
+Today I went to Phou Si, the Traditional Arts and Ethnology Center, the Night Market, and several wats. I also took a riverboat cruise on the Mekong with all the Fulbrighters, Princeton in Asia Fellows, and Luce Fellows to celebrate Christina P.'s birthday.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Phou Si
+
+Before I went to Phou Si, I went to a French café in the center of town. Luang Prabang is famous for its blend of French and Lao culture, which is especially present in the unique architecture that blends the two styles. There are also a lot of French cafés here and many of the signs are in Lao, French, and English (in that order). I had a quiche and a pain au chocolate for breakfast, which were very good. 
+
+Max, Janus, and I climbed to the top of Phou Si to see the wat at the top and the view of the entire town. The wat at the top was built in 1805, but legend has it that the site has been special for hundreds of years. According to legend, the great varana (monkey-human from the great Sanskrit epic, *The Ramayana*) Hanuman carried the hill from Sri Lanka to Laos long ago. Hanuman is revered throughout Southeast Asia. I found this particularly interesting since I am currently reading an abridged, poetic version of *The Ramayana*! (The full book is 20,000 pages, so I thought an abriged version would be better.)
+
+Read more about [Hanuman](https://www.britannica.com/topic/Hanuman)
+ 
+ ![view from Phou Si](https://lh3.googleusercontent.com/pw/ADCreHdxIZyaKTGauVtYFHauMdtqOKmC5ZjpbVBV_A-YljGEK89hv5lAJf32XsJYsce_KhyZ9DoUFVj4zW6zHh-l90dXb-3IYXp2rf2IjY0gLAUxo1jiDH-0=w1000)
+
+ Courtesy of Guerra, C. (2023)
+
+ The view from the top of Phou Si
+
+ Luang Prabang is surrounded by mountains, and the Mekong runs next to town. I had a beautiful view, and I enjoyed taking in the town. 
+
+ People come to Phou Si to see the wat and to take in the view. Many people bring banana leaves with marigolds, hanging trees with money, banana leaf holders with marigolds and candles, small woven cages with birds, and food as offerings for the monks. Many people carry their offerings up the steps. 
+
+ ![naga unfinished](https://lh3.googleusercontent.com/pw/ADCreHfGxP6mcevNBKBMmfXvmS0OuaQxCIpHIGvivJajTpk51OEvOExxI66PGdm2n_7QsGa3-rtcS1DS5Sdu8GQRgTFZXVHcridk9gIIPeqgaJURWCCj1ntg=w1000)
+
+ Courtesy of Guerra, C. (2023)
+
+ Examples of money trees (without money) and banana leaves with marigolds on the way to Phou Si (Notice that the naga statue behind the offerings is unfinished and that he has no heads!)
+
+![bird cages](https://lh3.googleusercontent.com/pw/ADCreHeqMmss9FhYLCXScuExPXoXt2em7sknUbub5jKGPFlM35CMVxx2Kq4HB0hB6T6XVkeGUZ164YHRrGuD55EM4qA3V7pRN9XbYY4x3FXOshQ3PjLB0gO0=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+Many people buy small woven cages with sparrows in them and release them at the temple. Then, people dispose of the cages. Notice the small bird cages in the small tree in the foreground. 
+
+ ![buddha statue](https://lh3.googleusercontent.com/pw/ADCreHcd5vOCIFILM75RTsc2m7AE0q_rjMWyeNtN06LBIU4RrfSg-iITyK_HpxSEHmpBQYeSh61wc6jr5zIIfM1nCm4rkEaS2BizjmBNxP5raJ2luAxjlmYP=w1000)
+
+ Courtesy of Guerra, C. (2023)
+
+ Buddha statue at Phou Si
+
+![stupa at Phou Si](https://lh3.googleusercontent.com/pw/ADCreHcQAce9kVgtSqhPmwRJQ9eCei3kiOEWm4ncFnf5dncMPVHfOMmPY3RpDxaO38OkRnVOB-gSRBzq3UISEUbwmJvO5Ur_TtyeJMG7QEhFNK6cZsirMz_y=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+Stupa at Phou Si
+
+When we left Phou Si, we saw many golden Buddha statues on the way down. We also saw a naga with heads that needed to be painted, which was interesting since we saw a headless naga earlier in the artistic process earlier that day.
+
+![Buddha statues Phou Si](https://lh3.googleusercontent.com/pw/ADCreHcTzcp-b_sPqPNNH6yQah3bcUMM_c4L_tDPTTYxjCTJ-9v-ef07wVh2JR0aftBNG8LOP-yVXmc-nJCcEeNgxmCyqv2WBsWywOVuoNvOyfSpO0DXmwXu=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+![naga with heads](https://lh3.googleusercontent.com/pw/ADCreHfjH9AvGYctRououXHnSW_EKi3EqPNqFyB0HDo_RdrIhNDZZfWtD15Oc7PM6yPdynxJXEpxz0_q7cU2SxQ9V68kV-EIM40Rih4agFNOaujEXHz7p3dp=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+## The Traditional Arts and Ethnology Center (TAEC)
+
+After visiting Phou Si, we went to the TAEC in Vientiane. They had a special event that focused on making boats for the holiday, so we wanted tp participate. 
+
+Discover more about [TAEC's mission](https://www.taeclaos.org/)
+
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
