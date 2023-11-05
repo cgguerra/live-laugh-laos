@@ -82,7 +82,7 @@ We all sang karaoke and had a great time. Towards the end, they brought out two 
 
 Courtesy of Guerra, C. (2023)
 
-## Awk Pansaa
+## My Favorite Lantern Creations from Awk Pansaa
 
 After we got off the boat, we walked around the Night Market and went wat hopping. I didn't buy anything at the Night Market since I was focused on visiting as many wats as possible since they only have the paper lanterns up until tomorrow night. 
 
@@ -102,12 +102,6 @@ A giant naga supporting 3 stupas with a lotus petal base
 
 Read more about [nagas](https://cgguerra.github.io/live-laugh-laos/monuments/history/sights/buddhism/art/spirit%20houses/2023/08/26/field-trip/)
 
-![wat with lanterns](https://lh3.googleusercontent.com/pw/ADCreHe9ranb4Zf2Lb5GeH3uK0FkUDV9x60XkVFcTKXIssQzeJxHgLkajqpEOCJLmtQ5j4uIr5mgDLW_OYPshzYHw6J3IELmZQGtX8jhrBsC-5tScoyaHHWu=w1000)
-
-Courtesy of Guerra, C. (2023)
-
-A wat with beautiful star lanterns
-
 ![paper lanterns in a courtyard](https://lh3.googleusercontent.com/pw/ADCreHdYNUc7GNhy1aM3ad3-VC2-7IwUQ5giasrmWwvPUSPdQKOIxhyAEVlbzMEeObKmMZA7xyUxngyX7g62RR3g4xPDPaNAmJHXxAV_7iH7TTgXY8vfsPr8=w1000)
 
 Courtesy of Guerra, C. (2023)
@@ -126,7 +120,27 @@ Courtesy of Guerra, C. (2023)
 
 An elephant beast lantern
 
-We met a woman named Pon tonight. She used to teach English at Dong Duk, and she ran the language lab there. 
+## Interesting People I Met at the Festival
+
+I talked to a monk at this wat this evening, he told me that he had wanted to become a monk since he was 10! He said his parents didn't want him to become a monk since he was the only son. They wanted him to work at a company. He was a monk at the wat for 2 years, then worked for a company, and then went back to the wat to be a monk again. He said his parents finally stopped trying to convince him to quit being a monk after 10 years! 
+
+![wat with lanterns](https://lh3.googleusercontent.com/pw/ADCreHe9ranb4Zf2Lb5GeH3uK0FkUDV9x60XkVFcTKXIssQzeJxHgLkajqpEOCJLmtQ5j4uIr5mgDLW_OYPshzYHw6J3IELmZQGtX8jhrBsC-5tScoyaHHWu=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+The Thai-style wat where I met the monk and the artist
+
+We also met the artist who makes stencil paintings for the wats for Awk Pansaa. He spoke very good English, and told us that the tradition of stencil painting comes from China. He said the wat we were at was built in the 1850s, and that the Lao king had artists from China come to Laos and teach local artists about the process. Artists usually paint stencils on paper or fabric. He said Luang Prabang was the meeting place of culture since people traveled from China to Southeast Asia and from Southeast Asia to China with Luang Prabang as a stopping point. He said many people stopped and stayed in Luang Prabang during the rainy season before continuing their respective journeys. The artist told us that this temple was an example of culture spreading around Asia. He said this temple was in Thai-style and not in traditional Lao-style. 
+
+The artist said one of his trademarks is painting someone losing a shoe in the crowd from moving or dancing at the festival. He said that this little touch humanizes people in his works. He said that this festival procession image was supposed to remind people of tradition and symbolize that the figures were marching towards the future, uniting the past and future of Lao people. I had a great time talking to the artist!  
+
+![stencil losing shoe](https://lh3.googleusercontent.com/pw/ADCreHdy25P93W5tak6ptzYc1uGoIZyXxYREN8iJD1kbgY8Q-HMMuM3pcSWbge0dfalj6U495t1Wy4lnGrTqe7g8o_wE7Ul6H0J9XCHAmismlMKNcR6jLeNt=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+Notice the man missing his shoe
+
+We met a woman named Pon tonight. She used to teach English at Dong Duk, and she ran the language lab there. She won a scholarship many years ago to study English in Hawaii. She got to meet Buzz Aldrin and Mrs. Nixon when Buzz crash landed in the Pacific in July of 1969! Pon is also the only woman who knows how to make kom pim, a type of Lao lantern that uses heat to spin. There is an inner layer of wire that has small cutout of people, animals, and buildings. The light from the candle projects the cutouts' shadows on the spinning outer part. The top of the kom pim has holes so the heat can escape and make the lantern move. These remind me of German Christmas pyramids that use the heat from candles to make the blades spin. 
 
 ![Lao kom pim](https://lh3.googleusercontent.com/pw/ADCreHcZMjC4gwZODQp8OnnOTys7EUWh4N2EuCU-XCPLnEHZOTY5aYi3my17TAHhHqEigJB4o98Apv1HwDajdh9gN-S03zttpvG0SEeHCxvrwx0CMklzonTE=w1000)
 
@@ -134,7 +148,13 @@ Courtesy of Guerra, C. (2023)
 
 A Lao kom pim
 
+![Christmas pyramid](https://cuckoo4design.com/wp-content/uploads/2017/12/German_Christmas_pyramid.jpg)
 
+Courtesy of Cuckoo4Design
+
+A German Christmas pyramid that uses the heat from the candles to make the blades spin, which is similar to the kom pim's method of movement
+
+I really enjoyed celebrating Awk Pansaa in Luang Prabang. It truly was a magical celebration.
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
