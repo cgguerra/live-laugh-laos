@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Lai Heua Fai
-categories: [content, demo]
+categories: [holiday, special celebration, culture]
 ---
 Lai Heua Fai is today! (It always falls on the day after Buddhist Lent.) On this day, people in Luang Prabang and Vientiane have boat races, release banana leaf boats on the river, and enjoy the lanterns around the city.
 

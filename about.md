@@ -4,7 +4,7 @@ title: About
 permalink: /about
 ---
 
-Hello, my name is Christina Guerra, and I will be serving as a Fulbright English Teaching Assistant to Laos for the 2023-2024 academic year. I will be teaching English at Faculty of Letters at the National University of Laos. I will be located in Vientiane for the next 11 months.
+Hello, my name is Christina Guerra, and I will be serving as a Fulbright English Teaching Assistant to Laos for the 2023-2024 academic year. I will be teaching English at the Faculty of Letters at the National University of Laos. I will be located in Vientiane for the next 11 months.
 
 ![Buddha park tourist photo](https://lh3.googleusercontent.com/pw/AIL4fc-Fw6wWTAybVmcwHGaMybXOfe7DEEsKz5nBf0DSVuZwJxaFUL8Mk1ZHTX5OD2-lNOv5QVtCOndOO768Do-Wi43ZCb2kd7FB1zEKSYhZ8Xne8-OErPa1=w500)
 

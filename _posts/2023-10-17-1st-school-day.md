@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The 1st Day of School
-categories: [daily life, Buddhism]
+categories: [daily life, Buddhism, teaching]
 ---
 
 Today was the first day of school at NUOL.

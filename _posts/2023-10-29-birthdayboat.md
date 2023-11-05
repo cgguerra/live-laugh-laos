@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Awk Pansaa
-categories: [Buddhism, art, culture, holiday, sights]
+categories: [Buddhism, art, culture, holiday, sights, special celebration]
 ---
 
 Today I went to Phou Si, the Traditional Arts and Ethnology Center, the Night Market, and several wats. I also took a riverboat cruise on the Mekong with all the Fulbrighters, Princeton in Asia Fellows, and Luce Fellows to celebrate Christina P.'s birthday. Tonight is Awk Pansaa, the end of Buddhist Lent. 

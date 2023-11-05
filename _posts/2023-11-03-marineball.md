@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Marine Corps Ball
-categories: [food]
+categories: [food, special celebration]
 ---
 
 Today I attended the 248th Marine Corps Ball at Saint Phila Convention Center in Vientiane.
