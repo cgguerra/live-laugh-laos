@@ -9,6 +9,12 @@ Lai Heua Fai is today! (It always falls on the day after Buddhist Lent.) On this
 
 To make a boat, you first take a slice of a banana trunk and tightly pin a folded banana leaf around it with bamboo toothpicks. The, you start folding triangles with banana leaves and bend the flexible toothpicks to look like staples. You then pin the triangles to the banana trunk. You can make as many or as few triangles as you want. I was having fun, so I made a lot. Then, you add the marigolds on top and stick them in with bamboo toothpicks. I stuck a lot in! (You can choose from orange or yellow marigolds.) You stick the candles and incense sticks into the banana stump and then add some strands of hair or a fingernail to your boat. I added some strands of hair. 
 
+![my boat](https://lh3.googleusercontent.com/pw/ADCreHfDwFaoXBzMdRI8iMfVy9eK892tuOyt2rSTIU6MHjY0g_ptbXDgNM7ylg58BNq7hYlhIN60htz1M9MDTxDuAZQ--iOCfQkryUOjD6nV11INTXjxUnl0=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+My boat
+
 The idea is that when you put your boat on the Mekong, the boat will carry your sins and mistakes away and you will be prepared for a fresh start. The strand of hair or fingernail serves as a piece of yourself, showing that you are symbolically going down the river. When you float your boat down the river, you make a wish for the new season. 
 
 My train leaves at 4:50, so I will not be in Luang Prabang for the boat races. I decided to take my boat to the river in the morning and release it. Hopefully releasing the boat earlier on the same day will still give me good luck for the new season!
@@ -17,7 +23,7 @@ My train leaves at 4:50, so I will not be in Luang Prabang for the boat races. I
 
 Courtesy of Guerra, C. (2023)
 
-My completed boat
+My completed boat floating down the Mekong
 
 After I released my boat, I wandered around and looked at wats with their bright paper lanterns. Last night I saw a large boat that the monks will release on the river this evening. I thought I'd include a picture to give an idea of what the boats will look like. 
 

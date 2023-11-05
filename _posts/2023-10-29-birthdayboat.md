@@ -134,7 +134,7 @@ We also met the artist who makes stencil paintings for the wats for Awk Pansaa. 
 
 The artist said one of his trademarks is painting someone losing a shoe in the crowd from moving or dancing at the festival. He said that this little touch humanizes people in his works. He said that this festival procession image was supposed to remind people of tradition and symbolize that the figures were marching towards the future, uniting the past and future of Lao people. I had a great time talking to the artist!  
 
-![stencil losing shoe](https://lh3.googleusercontent.com/pw/ADCreHdy25P93W5tak6ptzYc1uGoIZyXxYREN8iJD1kbgY8Q-HMMuM3pcSWbge0dfalj6U495t1Wy4lnGrTqe7g8o_wE7Ul6H0J9XCHAmismlMKNcR6jLeNt=w1000)
+![stencil losing shoe](https://lh3.googleusercontent.com/pw/ADCreHd1pCO6_TzXSEtoR4IQ8pQIpuD7YvxWoUBibtkJNpc9QtnXIrJJqTlQcxszDtZEjX4j4WNjxa5voEkSH-fZiO6vTDmBNkuWcn3WP6zDnVUAQ7O8ChYM=w1000)
 
 Courtesy of Guerra, C. (2023)
 

@@ -1,12 +1,46 @@
 ---
 layout: post
-title: Marine Ball
-categories: [food, holiday]
+title: Marine Corps Ball
+categories: [food]
 ---
 
-This my first post. 
+Today I attended the 248th Marine Corps Ball at Saint Phila Convention Center in Vientiane.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Happy 248th Birthday, Marines
+
+The Marine Corps Ball celebrates the birthday and formation of the Marine Corps in 1775. The Marines host a ball in every country with an embassy every year. Normally only the embassy staff and special guests are invited, but one of the embassy staff members invited us this year. I was really grateful that she thought to include us in this special celebration.
+
+Saint Phila Convention Center was so beautiful! I didn't realize that Balls are basically just like Prom for adults. 
+
+![upon entering](https://lh3.googleusercontent.com/pw/ADCreHdm4jnI8PZ9MSe8oq4nt6R16eSzQRzKLUNXjdWlSIxm6AXpidIRThQptU-21eCLk6UEst4qPsX3IEVMgCLqs-KAmws2tpJhTUJrRNd08ccVSrYuDEPM=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+The first year Fulbrighters upon arriving at the ball
+
+We went and sat at our seats and had wine for cocktail hour. Then there were speeches from the Marines about their mission and foundation in 1775. The Marines started working in embassies after World War II when some of them were sent to serve and protect in London. A few years later, Marines were deployed in embassies throughout the world. 
+
+The Marines talked about how they were proud to serve and that they believe in the idea "once a Marine, always a Marine." The guest of honor was the interim ambassador Michelle Y. Outlaw. She talked about her connection to the Marines and how they are vital to the U.S. embassies's safety around the world. 
+
+There are eight Marines who work in the Vientiane embassy. They were all recognized for their service. They brought out a big cake on a cart and the Detachment Commander cut the cake with a sword. Needless to say, it was memorable.
+
+![cutting the cake](https://lh3.googleusercontent.com/pw/ADCreHeNs6Xj4KNQPNU2VAyf7-lf71iLFMylZHZJ0FOzKhUpe7j_-CBZ7KcxQ_e0aRTzVMO5u9fWKLwLM1zZ-IcWhbTj02l0xaE0v8wbWW9V4qPhtPMJXkFB=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+The Marine Detachment Commander cutting the cake with a sword
+
+After everyone received cake, we had dinner. There were so many Lao dishes! There was a giant Lazy Susan in the middle of the table with dishes, so to serve yourself, you spun the wheel. 
+
+We took a picture with our friends who work as American Center Fellows. We were so happy to spend time with them! 
+
+![Fulbrighters and VTE Fellows](https://lh3.googleusercontent.com/pw/ADCreHcdmB-O_MSzZB4Wpnk5n6JTJcHaEig85N_JpEhgmrcLp6j-kR1B4_xuwZ3oZMMzys_wKmboNWdT1UfGwoIZ5IpQebwHNqOYQpmOlFCSBvpO-BpHXD9P=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+The first year Fulbrighters and the American Center Fellows
+
+I had a wonderful time attending and learned some Lao dances by imitating women on the dance floor. I am so happy I got to attend!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
