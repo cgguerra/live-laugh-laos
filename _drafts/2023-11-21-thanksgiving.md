@@ -1,12 +1,57 @@
 ---
 layout: post
-title: From Vientiane with Love
-categories: [content, demo]
+title: Happy Thanksgiving! (Lao Style)
+categories: [Buddhism, daily life, culture, teaching, special celebration]
 ---
 
-This my first post. 
+Today I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We are having a class at the American Center celebrating Thanksgiving today.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Monks and Novices
+
+Today I learned about of the differences between monks and novices. It is easy to tell who is a novice and who is a monk if you pay attention to what they are wearing.  Novices wear robes that show one of their shoulders, and are not full-blown monks. Monks wear robes that cover both shoulders. 
+
+![novices](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSPXNAUg9CQFQcFxmjolCgk04SbXXSzzdn21A&usqp=CAU)
+
+Courtesy of Planet Janet Travels
+
+These young men are all novices because they have one shoulder showing.
+
+![full-blown monk](https://backyardtravel.com/wp-content/uploads/2018/03/Portrait-of-a-young-Buddhist-monk-Laos.jpg)
+
+Courtesy of Backyard Travel
+
+This young man is a monk because both of his shoulders are covered. 
+
+You can address a monk as "ku-bah" and a novice as "tua" if they are younger than you. If the novice is older than you, you can address them as "eye-tua."
+
+Young men usually serve as novices for 4 years before they can become a monk. To become a monk, you must be at least 20 years old. Not all novices become monks. If a novice decides to become a monk, there are more rules to follow and the novice must stay a monk for a minimum of four years before disrobing (leaving monkhood behind). There is no stigma around leaving monkhood behind. It is a very common thing for young men to serve as monks for a while and then leaving the monkhood.
+
+![novice initiation](https://images.theconversation.com/files/229314/original/file-20180725-194152-9ixsjn.jpg?ixlib=rb-1.1.0&q=45&auto=format&w=926&fit=clip)
+
+Courtesy of The Conversation
+
+Young men participating in the novice initiation ceremony
+
+Novices have 10 rules that they have to follow, while monks have 277. Some novices do not want to become monks because they plan on disrobing in the near future. Many young men serve as novices for several years, and then leave monkhood to take on a different job and possibly have a family. There are more rules for monks compared to novices. For example, monks are not allowed to have backpacks and must use the special satchels provided by the temple. Monks must also cover both shoulders and cannot use scarves to cover their heads from the sun. There is a slightly stricter dress code for monks. 
+
+It turns out that I teach 3 novices! I will have to ask them if they plan on becoming monks. (And I will have to start addressing them as "tua.")
+
+## What are monks allowed to eat?
+
+I asked Ku-bah Nee if monks are allowed to eat meat. He said yes. However, they are not allowed to eat snake, horse, cat, bear, elephant, 2 types of tigers, and some other things. This is because the Buddha was reincarnated as all of these creatures, and the monks do not eat them out of respect for Buddha's past lives.
+
+![buddha as white elephant](https://as2.ftcdn.net/v2/jpg/02/25/25/37/1000_F_225253780_P6oEhSGaR5EXZdgbrym4jgCm2bIpGXTW.jpg)
+
+Courtesy of Adobe Stock
+
+A temple in Thailand with a white elephant that represents Buddha's reincarnation from a past life. (You can tell this is Thailand or Laos because of the three-headed elephant on the side. This is a symbol of Laos and Thailand.)
+
+## Differences in Monkhood in Vientiane and Luang Prabang
+
+Rules for monks are stricter in Luang Prabang. (Ku-bah Nee is from Luang Prabang.) In Vientiane, monks can ride bicycles and motorbikes (even though it's technically against the rules) and can take the bus. In Luang Prabang, monks are never allowed to ride bicycles and motorbikes. The bus is not popular in Luang Prabang. Monks in Vientiane also don't have to use the special monk satchel given to them by the temple. They can use backpacks. In Luang Prabang, they must use the special satchel. Monks are also not allowed to wear novice robes in Luang Prabang. Ku-bah Nee is a monk, but he was wearing novice robes on the bus. He said it is ok for him to wear novice robes in Vientiane, but never in Luang Prabang. 
+
+## Thanksgiving at the American Center
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
