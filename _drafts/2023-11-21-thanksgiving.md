@@ -4,7 +4,7 @@ title: Happy Thanksgiving! (Lao Style)
 categories: [Buddhism, daily life, culture, teaching, special celebration]
 ---
 
-Today I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We are having a class at the American Center celebrating Thanksgiving today.
+Today I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We are having a class at the American Center celebrating Thanksgiving today. I thought I'd include my second post about Buddhist monks here since I learned so much today!
 
 ## Monks and Novices
 
@@ -44,7 +44,9 @@ I asked Ku-bah Nee if monks are allowed to eat meat. He said yes. However, they 
 
 Courtesy of Adobe Stock
 
-A temple in Thailand with a white elephant that represents Buddha's reincarnation from a past life. (You can tell this is Thailand or Laos because of the three-headed elephant on the side. This is a symbol of Laos and Thailand.)
+A temple in Thailand with a white elephant that represents Buddha's reincarnation from a past life. (You can tell this is Thailand or Laos because of the three-headed elephant on the side. This is a symbol of Laos and Thailand used frequently in temple imagery.)
+
+Read more about [elephants in Buddhism](https://southernthailandelephants.org/elephants-in-buddhism/)
 
 ## Differences in Monkhood in Vientiane and Luang Prabang
 
@@ -52,6 +54,7 @@ Rules for monks are stricter in Luang Prabang. (Ku-bah Nee is from Luang Prabang
 
 ## Thanksgiving at the American Center
 
+I taught a lesson about Thanksgiving today at the American Center since many students wanted to learn about it. I have been teaching a grammar class there for the past four weeks and thought that we could end with something fun. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
