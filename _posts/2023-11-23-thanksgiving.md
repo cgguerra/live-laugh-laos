@@ -64,7 +64,7 @@ I taught a lesson about Thanksgiving today at the American Center since many stu
 
 I taught the class about Thanksgiving with an educational video and had them use the words from the word bank to fill in the sentences.  I showed them pictures of the Macy's Day Parade, the presidential turkey pardon, and Turkey Trots across the U.S. I brought a Turkey Trot medal from 2022 for show and tell. The whole class made hand turkeys at the end and wrote sentences about what they were grateful for during the holiday season.
 
-![Thanksgiving AC](https://lh3.googleusercontent.com/pw/ADCreHdy25P93W5tak6ptzYc1uGoIZyXxYREN8iJD1kbgY8Q-HMMuM3pcSWbge0dfalj6U495t1Wy4lnGrTqe7g8o_wE7Ul6H0J9XCHAmismlMKNcR6jLeNt=w2400)
+![Thanksgiving AC](https://lh3.googleusercontent.com/pw/ADCreHdy25P93W5tak6ptzYc1uGoIZyXxYREN8iJD1kbgY8Q-HMMuM3pcSWbge0dfalj6U495t1Wy4lnGrTqe7g8o_wE7Ul6H0J9XCHAmismlMKNcR6jLeNt=w1000)
 
 Courtesy of Guerra, C. (2023)
 
