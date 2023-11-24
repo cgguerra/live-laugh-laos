@@ -4,7 +4,7 @@ title: Happy Thanksgiving! (Lao Style)
 categories: [Buddhism, daily life, culture, teaching, special celebration]
 ---
 
-Today I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We are having a class at the American Center celebrating Thanksgiving today. I thought I'd include my second post about Buddhist monks here since I learned so much today!
+On Tuesday I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We had a class at the American Center celebrating Thanksgiving. I thought I'd include my second post about Buddhist monks here since I learned so much before class! I also included my Thanksgiving celebration on Thursday, which was pretty uneventful.
 
 ## Monks and Novices
 
@@ -46,15 +46,41 @@ Courtesy of Adobe Stock
 
 A temple in Thailand with a white elephant that represents Buddha's reincarnation from a past life. (You can tell this is Thailand or Laos because of the three-headed elephant on the side. This is a symbol of Laos and Thailand used frequently in temple imagery.)
 
-Read more about [elephants in Buddhism](https://southernthailandelephants.org/elephants-in-buddhism/)
+Read more about [elephants in Thai Buddhism](https://southernthailandelephants.org/elephants-in-buddhism/)
 
 ## Differences in Monkhood in Vientiane and Luang Prabang
 
 Rules for monks are stricter in Luang Prabang. (Ku-bah Nee is from Luang Prabang.) In Vientiane, monks can ride bicycles and motorbikes (even though it's technically against the rules) and can take the bus. In Luang Prabang, monks are never allowed to ride bicycles and motorbikes. The bus is not popular in Luang Prabang. Monks in Vientiane also don't have to use the special monk satchel given to them by the temple. They can use backpacks. In Luang Prabang, they must use the special satchel. Monks are also not allowed to wear novice robes in Luang Prabang. Ku-bah Nee is a monk, but he was wearing novice robes on the bus. He said it is ok for him to wear novice robes in Vientiane, but never in Luang Prabang. 
 
+![monks in LPB](https://cdn-bdfll.nitrocdn.com/gVihtTSHBnNfSeJKAjqzVbkYXEwBiNNo/assets/images/optimized/rev-c538b96/wp-content/uploads/2022/07/Wat-Xieng-Thong-Temple-Inside-Luang-Prabang-Laos-768x456.jpg)
+
+Courtesy of Love Laos
+
+Monks at a temple in Luang Prabang
+
 ## Thanksgiving at the American Center
 
 I taught a lesson about Thanksgiving today at the American Center since many students wanted to learn about it. I have been teaching a grammar class there for the past four weeks and thought that we could end with something fun. 
+
+I taught the class about Thanksgiving with an educational video and had them use the words from the word bank to fill in the sentences.  I showed them pictures of the Macy's Day Parade, the presidential turkey pardon, and Turkey Trots across the U.S. I brought a Turkey Trot medal from 2022 for show and tell. The whole class made hand turkeys at the end and wrote sentences about what they were grateful for during the holiday season.
+
+![Thanksgiving AC](https://lh3.googleusercontent.com/pw/ADCreHdy25P93W5tak6ptzYc1uGoIZyXxYREN8iJD1kbgY8Q-HMMuM3pcSWbge0dfalj6U495t1Wy4lnGrTqe7g8o_wE7Ul6H0J9XCHAmismlMKNcR6jLeNt=w2400)
+
+Courtesy of Guerra, C. (2023)
+
+My Thanksgiving class at the American Center with their hand turkeys
+
+## Actual Thanksgiving (11/23)
+
+![Joma](https://images.happycow.net/venues/1024/12/81/hcmp128190_2029809.jpeg)
+
+Courtesy of HappyCow
+
+Joma in Vientiane, Laos
+
+For actual Thanksgiving, I had a normal Thursday. For dinner, I went to Joma café by the Mekong and got a Thanksgiving sandwich with turkey, stuffing, cranberries, and gravy. I also bought a miniture pie with dewberries or something like that. I read *The Ramayana* for an hour and a half at Joma after I finished and went home. I was too tired to go for a run, especially since I bike 9 miles on both Wednesdays and Thursdays!
+
+I had the best Thanksgiving I could have, but it still would have been nice to celebrate with family. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
