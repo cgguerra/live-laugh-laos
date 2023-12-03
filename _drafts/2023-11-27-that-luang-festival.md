@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: That Luang Festival
+categories: [special celebration, culture]
 ---
 
 This my first post. 
