@@ -1,7 +1,7 @@
 ---
 layout: post
 title: That Luang Festival
-categories: [special celebration, culture]
+categories: [special celebration, culture, Buddhism]
 ---
 
 Today was That Luang Festival, a special celebration of the That Luang stupa that only happens in Vientiane. (In Lao, this holiday is called "Boun That Luang.")
