@@ -6,7 +6,6 @@ categories: [special celebration, culture]
 
 Today was That Luang Festival, a special celebration of the That Luang stupa that only happens in Vientiane. (In Lao, this holiday is called "Boun That Luang.")
 
-
 ## A Special Celebration
 
 That Luang is a big holiday in Vientiane. CARE staff had the day off. Technically Dong Duk students didn't have the day off, but my coworkers told me that most teachers cancel classes since students want to celebrate with their families. I cancelled so my class didn't have to worry about commuting to school and had more time to spend with their families on the holiday. 
@@ -19,13 +18,41 @@ Courtesy of Guerra, C. (2023)
 
 A paper naga in the traditional village with offerings of fruit, marigold and banana leaf cones, and candles
 
-For That Luang Festival, they usually open the gates at 9:00, and people are allowed in to walk around the stupa. (If I wanted to use an Art History term, I would use "circumambulate," which means "to walk around" for a ceremonial purpose.) I didn't bring my sinh since I had to ride my bike to Elspeth's apartment before we walked over. I should have worn my bike shorts and then put the sinh on when I got there, but I wasn't thinking. The officials required those who entered the structure to have a sinh. Franny, Elspeth, and I all have sinhs, but we didn't bring them. We went to a place and rented sinhs for 20,000 kip each. 
+For That Luang Festival, they usually open the gates at 9:00, and people are allowed in to walk around the stupa. (If I wanted to use an Art History term, I would use "circumambulate," which means "to walk around" for a ceremonial purpose.) Before the gates opened, there was a fireworks show. The fireworks were a little too close to the crowd for comfort, but it's Laos. Sometimes things like this happen. 
+
+![Fireworks](https://lh3.googleusercontent.com/pw/ADCreHeoLc7O6bWI00-nsLP30yhlxyZL_yVDUYvSwOpociH4XTr4p4FQWS6BAuVUPiRzE25X5aEcZ1AQ4hN5GdE3jASIXcztsYd7CkpbisERcvWLssCajbNZ=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+## Participating in the Ceremony
+
+ I didn't bring my sinh since I had to ride my bike to Elspeth's apartment before we walked over. I should have worn my bike shorts and then put the sinh on when I got there, but I wasn't thinking. The officials required those who entered the structure to have a sinh. Franny, Elspeth, and I all have sinhs, but we didn't bring them. We went to a place and rented sinhs for 20,000 kip each. 
 
 ![friend photo](https://lh3.googleusercontent.com/pw/ADCreHdrnh2Pq8UPBQ2RQ2VotNqLSxXzcD-721jhRg6qfv6gWB5Q82aDcJJG2SJLI5TSQBhvTo5FQ__BrUatkfEXaRuct-GbaMIver3rwbaM1KKUZJ_6uItC=w1000)
 
 Courtesy of Guerra, C. (2023)
 
+Me, Franny, Elspeth, and Violin
 
+We entered the gates and walked around the stupa three times. Many people brought flowers and candles and left offerings in front of the Buddha statues and in front of the statue of King Chao Anouvong. There were also many monks and novices present since That Luang is sacred and according to legend, holds a piece of Buddha's breastbone. 
+
+Read more about [That Luang's origin story](https://cgguerra.github.io/live-laugh-laos/monuments/history/sights/buddhism/art/spirit%20houses/2023/08/26/field-trip/)
+
+Learn more about [King Chao Anouvong](https://cgguerra.github.io/live-laugh-laos/culture/food/monuments/history/spirit%20houses/2023/08/23/high-so/)
+
+![circumambulating](https://lh3.googleusercontent.com/pw/ADCreHe1ZdrVkAXkTMfRJgQka1sEPUCLujKzR7aHKQ1JLo7hRsoPeVJuGC2ne-QwEMw4wECsDvrRKXlti5hoy6q0AggpJJXfHyA678Z1NgD0u-Z_aZCZVkGR=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+People circumambulating around That Luang. 
+
+![with flags](https://lh3.googleusercontent.com/pw/ADCreHfkhySl8iQQptyGOv4TOxDCDwEL_NMsZ939jh9T5qCa4uuYuLOQVS2MVrMLhErcLs7R2_57UA4SogUwwTy__bK6xVZo4qN99QL0Rqv7KbxxaC7QYHH8=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+More people cirumambulating!
+
+After the ceremony, we walked back to Elspeth's and then I went home. It was so much fun to participate in such a beautiful holiday unique to Vientiane!
  
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
