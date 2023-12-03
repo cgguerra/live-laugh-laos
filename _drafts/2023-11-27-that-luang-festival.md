@@ -4,10 +4,29 @@ title: That Luang Festival
 categories: [special celebration, culture]
 ---
 
-This my first post. 
+Today was That Luang Festival, a special celebration of the That Luang stupa that only happens in Vientiane. (In Lao, this holiday is called "Boun That Luang.")
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
 
+## A Special Celebration
+
+That Luang is a big holiday in Vientiane. CARE staff had the day off. Technically Dong Duk students didn't have the day off, but my coworkers told me that most teachers cancel classes since students want to celebrate with their families. I cancelled so my class didn't have to worry about commuting to school and had more time to spend with their families on the holiday. 
+
+That Luang Festival is normally 5 days. Today was the last day of the celebration and the biggest day. There was a traditional village with paper creatures, traditional music, and food. 
+
+![paper dragon](https://lh3.googleusercontent.com/pw/ADCreHfqLg_2xnBSMCYzxV_N2KJClWC2_lIyprbXklnoVp1kGspjbq2oVdcEDiLIrieL1nC9FmunGAT3-MRN6RdrGyey2qL_P4JN6f_Fy3lNw2yveBNdQG_S=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+A paper naga in the traditional village with offerings of fruit, marigold and banana leaf cones, and candles
+
+For That Luang Festival, they usually open the gates at 9:00, and people are allowed in to walk around the stupa. (If I wanted to use an Art History term, I would use "circumambulate," which means "to walk around" for a ceremonial purpose.) I didn't bring my sinh since I had to ride my bike to Elspeth's apartment before we walked over. I should have worn my bike shorts and then put the sinh on when I got there, but I wasn't thinking. The officials required those who entered the structure to have a sinh. Franny, Elspeth, and I all have sinhs, but we didn't bring them. We went to a place and rented sinhs for 20,000 kip each. 
+
+![friend photo](https://lh3.googleusercontent.com/pw/ADCreHdrnh2Pq8UPBQ2RQ2VotNqLSxXzcD-721jhRg6qfv6gWB5Q82aDcJJG2SJLI5TSQBhvTo5FQ__BrUatkfEXaRuct-GbaMIver3rwbaM1KKUZJ_6uItC=w1000)
+
+Courtesy of Guerra, C. (2023)
+
+
+ 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
 Feel free to delete this post when you are ready to publish your first post.  
