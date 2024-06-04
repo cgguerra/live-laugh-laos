@@ -4,13 +4,35 @@ title: Country Profile Project
 categories: [teaching, special celebration]
 ---
 
-Today my class presented their Country Profile Projects, and they voted for their favorites.
+Today my Oral Communication 2A class presented their Country Profile Projects, and they voted for their favorites.
 
 ## Country Profile Projects
 
+I had my Oral Communication 2A class do Country Profile Projects for their midterm assignment. I gave them countries since I didn't want to read 100 projects on Laos or Thailand. I made it a point to choose countries that they'd never heard of/ didn't know much about so that they would learn more about the world. China, Japan, South Korea, and all of Southeast Asia were not included in the country selection to make it fair for everyone. (They wouldn't have had to research those places as much since they already know a fair amount.)
 
+I was really pleased with what they came up with! Students presented on interesting countries like Botswana, Egypt, Morocco, Uzbekistan, Guatemala, Ecuador, Canada, Turkey, Greece, Mongolia, Papua New Guinea, and more! 
 
 ## The People's Choice Awards
+
+After the presentations, the students got to vote on the best project, presentation, and best overall. We had a "gallery" of projects where I laid the posters on the tables so everyone could enjoy their classmates' work. In the end, we had several winners because there were quite a few ties! 
+
+Best Presentation
+1. Nok - 3 votes
+2. Toby - 3 votes
+
+Best Project
+1. Thou - 5 votes
+
+Best Overall
+1. Thippansa - 3 votes
+2. Thou - 3 votes
+3. Montee - 3 votes
+
+![winners of project competition]()
+
+Courtesy of Guerra, C. (2024)
+
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
