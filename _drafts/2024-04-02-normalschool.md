@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: A Normal Day at School
+categories: [teaching, Buddhism]
 ---
 
 This my first post. 

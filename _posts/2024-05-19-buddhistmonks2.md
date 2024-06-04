@@ -1,12 +1,42 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: Buddhist Monks Part 2
+categories: [Buddhism, daily life, culture]
 ---
 
-This my first post. 
+At last! Here it is! The long-awaited Buddhist Monks Part 2 post! I have been asking my (only) full monk, Monk Benly from Oral Communication 2A, questions about monk life since he speaks English well. Here goes nothing!
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Wat Life
+
+Monk Benly told me that all wats have libraries. Most of the books in this library are texts about Buddha's life and are in Thai. These books are massive! They are 4 or 5 inches thick usually. Monks can read, listen to music, or audiobooks for fun. Monk Benly said that he likes to read and listen to music for fun. I told him that one monk said that he sweeps the temple for fun, and even he thought that was unusual. He said that that's a chore, and it's not fun!
+
+Monks all have smartphones, and they like to watch tv and be on Facebook like everyone else. Two weeks ago, I saw a monk watching wrestling on his phone on the bus. I couldn't help but chuckle. 
+
+![Monk watching wrestling](https://lh3.googleusercontent.com/pw/AP1GczPa_r9duIyCMhGmRxWSPT7Nva_a3nWVXz5nkpMY2Dq_S_NEu4sWsOZLfgmHLKIJ0_TkRrAUbbLegpDTd29bQj4dBIjVYPC2SKk4p8xYTFQQK97-Z4gE=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+If you look closely, you can see the wrestling match on the monk's screen.
+
+Monks usually have 3 sets of robes. They take off the outer layers (there really are a lot of layers) and wear one of the inner layers when they sleep. They don't have designated pajamas. 
+
+They usually have one pair of sandals that they wear until they break. When they break, they get a new one. One of my novices from General English 1F, Sysonexay (Sy for short), has bright electric blue sandals. This is unusual for monks since their sandals are almost always black or brown. He got new shoes recently, and he was smiling when I noticed that they were electric blue. I put my navy blue Sketcher sandal next to his and said, "Twinning!" He and Novice Outhai laughed. It's amazing what you can convey with so little language. I even told Monk Benly (my full monk from Oral Communication 2A) about Sy's blue sandals, and he laughed. Monks are so silly and fun. 
+
+## The Wheels on the Bus Go Round and Round
+
+Most monks ride the bus since they're technically not supposed to own bicycles or motorbikes. The monks almost always sit at the very back since there is a long bench, and there's a place for monks when it gets busy. As a reminder, monks aren't allowed to sit next to women, so if it gets crowded with monks, we often have to reorganize most of the bus. By sitting at the back, the monks can save time and don't have to scramble to find a seat. I think it's funny because only troublemakers and bad kids sit at the back of the bus in the U.S. In Laos, only the enlightened ones sit at the back of the bus. 
+
+![17 monks on the bus](https://lh3.googleusercontent.com/pw/AP1GczPkT-4PMFdPZpY8F1bebFapqUVT4v4Ma_ZyOWaDb_H_dzq-z-MV7eboY6dnpCXQJ7TJtIJNJmFlzD09Hwof8Ot0wzj_mfRtpoHIkg2DNcaAgI2K02fR=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+The bus had 17 monks on it when I took this picture. There were only 2 women, including myself, on the bus at that time. 
+
+
+
+
+
+
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
