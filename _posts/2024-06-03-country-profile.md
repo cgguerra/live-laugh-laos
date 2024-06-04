@@ -28,11 +28,13 @@ Best Overall
 2. Thou - 3 votes
 3. Montee - 3 votes
 
-![winners of project competition]()
+![winners of project competition](https://lh3.googleusercontent.com/pw/AP1GczPAfhM12ZRmuUez5OKGIvsVuXe0cB6BnfMZ09hmQLFOVpRF9tq43gWh1ci3HF6Z2NF9WPCcD91dPbqGwoh2fhZ1upLr1_aA5ipG47woASXkEG0O9DpB=w1000)
 
 Courtesy of Guerra, C. (2024)
 
+From left to right: Thou, Toby, Thippansa, & Nok (Montee couldn't be here since she had a special event to attend.)
 
+The winners each got their choice of food eraser. Thou got two since he won twice. It was a very exciting day for all of us!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
