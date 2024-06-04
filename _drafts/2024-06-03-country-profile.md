@@ -1,12 +1,16 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: Country Profile Project
+categories: [teaching, special celebration]
 ---
 
-This my first post. 
+Today my class presented their Country Profile Projects, and they voted for their favorites.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Country Profile Projects
+
+
+
+## The People's Choice Awards
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
