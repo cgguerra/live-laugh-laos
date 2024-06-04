@@ -1,12 +1,46 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: NUOL Talent Show & Spelling Bee
+categories: [teaching, culture, special celebration]
 ---
 
-This my first post. 
+We recently had the NUOL Talent Show and Spelling Bee. I was in charge of running the Spelling Bee portion of the event.
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## Spelling Bee
+
+One of the teachers gave me printed lists of vocabulary from the back of the textbooks for students years 1-4. I could choose any word from the lists that I wanted. Instead of doing the NUOL Spelling Bee the traditional American way (i.e., students standing on a stage are given are a word and can ask for the definition, etymology, and the use of a word in the sentence and must spell the word out loud), the participants received whiteboards and markers so that they could write the word. The participants sat in chairs on stage, I read the word, then they would write it, and I would check it. If they got a word wrong, I just wouldn't give them a point. Whoever had the most points won the round.
+
+The NUOL Spelling Bee was organized this way so that nobody would lose face. Keeping up appearances is very important to Lao culture. If somebody spelled the word incorrectly, I noted it down on my sheet. The downside was that the crowd couldn't see the words on the board and didn't know who was winning. 
+
+![Spelling Bee with me in it](https://lh3.googleusercontent.com/pw/AP1GczOsiDxbKZt0GQMQ3TcOunPxm_wa9aJ181i0fka27J8ry8kJJpb8Zsx03xyg1mWxb8eaujgkpgbYSRgu7kTSKoYdgQ1swjTjJNBF1YF9aTeWEBTEulhW=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+Notice that I am in the corner of this picture with my vocabulary sheets. 
+
+ We had 5 rounds total: year 1, year 2, year 3, year 4, and final round. We had had class Spelling Bees for General English the week before, so those winners competed in the NUOL Spelling Bee rounds on stage. The winners of year 1, year 2, year 3, and year 4 competed in the final round where they could receive any word from year 1-4 vocabulary. 
+
+ Novice Outhai represented General English 1F in the NUOL Spelling Bee. He did as well as the General English 1E representative and spelled 6 words perfectly. General English 1F and I were very proud of him! 
+
+ ![Outhai on stage](https://lh3.googleusercontent.com/pw/AP1GczPSP-p42FqLoL27-ThsxtTaOrxFMKlE0NKEzyB42lZHQmDJA3OicCkovHpo_qfauxL1TRaBs_nY07n5KjcfiOQAldAo5pvMPa5vv0pHGik92vsNaZDS=w1000)
+
+ Courtesy of Guerra, C. (2024)
+
+ He was nervous about appearing on stage and spelling, but he had nothing to worry about since he did a *fantastic* job. We had a class celebration the day after to recognize Outhai's accomplishments. 
+
+ ## Celebrating Outhai
+
+ I had a nice notebook (from a CARE event) that I wrote a special note in for Outhai after the Spelling Bee. I also included a pen and a green paper crown that I got at a Mardi Gras event. I was so excited to celebrate Outhai's accomplishments since I knew it took a lot of courage for him to get on stage! 
+
+ ![Outhai's prize](https://lh3.googleusercontent.com/pw/AP1GczOubpOrL05oXxF1Ym7FbispHEfkxwfZFgHsBlyJdv-L4uK12gdEFK4m2ZiWAWEvP16RJeGi_WwdZU9wL2fC42RC-X6UPQ1MV50cssnfXNKYIR0iScML=w1000)
+
+ Courtesy of Guerra, C. (2024)
+
+ Lao men don't often smile in photos. Outhai is all smiles in class, but he's not smiling here because it's a cultural norm. Please believe me when I say that he was very excited! 
+
+ I also brought Nutella and crackers to class for everyone. A big jar of Nutella like I have is considered to be very expensive in Laos! A large jar usually costs around 180,000 K. (It's about $7.20 in USD.) My studnets had never had Nutella before, and they loved it! I brought the Nutella on Friday and Monday. It rained a lot on Friday, so we didn't have many students come to class that day. (It's absolutely miserable to ride a bike in the heavy rain in Laos-- ask me how I know.) I brought the Nutella again on Monday so everyone who wasn't there could try it. (I wanted us to have it Friday too though so we could have an Outhai party!)
+
+ I'm so glad that they got to try something new. Everybody gave me a thumbs up when I asked if they liked it!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
