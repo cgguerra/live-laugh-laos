@@ -38,7 +38,7 @@ Notice that I am in the corner of this picture with my vocabulary sheets.
 
  Lao men don't often smile in photos. Outhai is all smiles in class, but he's not smiling here because it's a cultural norm. Please believe me when I say that he was very excited! 
 
- I also brought Nutella and crackers to class for everyone. A big jar of Nutella like I have is considered to be very expensive in Laos! A large jar usually costs around 180,000 K. (It's about $7.20 in USD.) My studnets had never had Nutella before, and they loved it! I brought the Nutella on Friday and Monday. It rained a lot on Friday, so we didn't have many students come to class that day. (It's absolutely miserable to ride a bike in the heavy rain in Laos-- ask me how I know.) I brought the Nutella again on Monday so everyone who wasn't there could try it. (I wanted us to have it Friday too though so we could have an Outhai party!)
+ I also brought Nutella and crackers to class for everyone. A big jar of Nutella like I have is considered to be very expensive in Laos! A large jar usually costs around 180,000 K. (It's about $7.20 in USD.) My students had never had Nutella before, and they loved it! I brought the Nutella on Friday and Monday. It rained a lot on Friday, so we didn't have many students come to class that day. (It's absolutely miserable to ride a bike in the heavy rain in Laos-- ask me how I know.) I brought the Nutella again on Monday so everyone who wasn't there could try it. (I wanted us to have it Friday too though so we could have an Outhai party!)
 
  I'm so glad that they got to try something new. Everybody gave me a thumbs up when I asked if they liked it!
 

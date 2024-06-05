@@ -6,7 +6,7 @@ categories: [teaching, special celebration]
 
 Today my Oral Communication 2A class presented their Country Profile Projects, and they voted for their favorites.
 
-## Country Profile Projects
+## Country Selection
 
 I had my Oral Communication 2A class do Country Profile Projects for their midterm assignment. I gave them countries since I didn't want to read 100 projects on Laos or Thailand. I made it a point to choose countries that they'd never heard of/ didn't know much about so that they would learn more about the world. China, Japan, South Korea, and all of Southeast Asia were not included in the country selection to make it fair for everyone. (They wouldn't have had to research those places as much since they already know a fair amount.)
 
@@ -14,7 +14,7 @@ I was really pleased with what they came up with! Students presented on interest
 
 ## The People's Choice Awards
 
-After the presentations, the students got to vote on the best project, presentation, and best overall. We had a "gallery" of projects where I laid the posters on the tables so everyone could enjoy their classmates' work. In the end, we had several winners because there were quite a few ties! 
+After the presentations, the students got to vote on the best project, best presentation, and best overall. We had a "gallery" of projects where I laid the posters on the tables so everyone could enjoy their classmates' work. In the end, we had several winners because there were quite a few ties! 
 
 Best Presentation
 1. Nok - 3 votes
