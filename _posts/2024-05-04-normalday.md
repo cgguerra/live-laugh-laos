@@ -24,7 +24,7 @@ Courtesy of Guerra, C. (2024)
 
 This is a dead scorpion I saw at CARE. They look exactly the same on the side of the dirt road at school. 
 
-There are cows by the Sok Dee café stop. They are far behind the bench. I have seen them close to the intersection a few times. Here's a picture. 
+There are cows by the Sok Dee café stop. They are far behind the bench. I have seen them close to the intersection a few times for some mysterious reason. 
 
 ![cows at school](https://lh3.googleusercontent.com/pw/AP1GczPiCk9F_-Oow0xqjbWepFmhslRH1XdHZblRysJ1BbVUDSOM9U0EuSCcTVg98t4YVRWDZmERDHXda_q4HQt6M1FVqRtSJyGl_5mxMziddO95L31HMq85=w1000)
 
@@ -32,7 +32,7 @@ Courtesy of Guerra, C. (2024)
 
 Cows at school 
 
-## In the Classroom 
+## In the Classroom & Cafeteria
 
 Here is a copy of my schedule to answer all your burning questions! As a reminder, I don't have school on Wednesday. (I work at CARE on Wednesday.)
 
@@ -54,7 +54,7 @@ In order: Pavina, Malio (Mit), Novice Outhai (ft. the random dog that comes into
 
 Courtesy of Guerra, C. (2024)
 
-I usually eat lunch by myself since students rarely sit with teachers. However, this was a special day where my students asked me to have lunch with them, and I gave a wholehearted yes! 
+I usually eat lunch by myself since students rarely sit with teachers. However, this was a special day where my students asked me to have lunch with them, and I gave a wholehearted yes! Left: Beauty, Mani Right: Li Xue, me
 
 Read about the [amazing cafeteria food at NUOL](https://cgguerra.github.io/live-laugh-laos/food/culture/language/daily%20life/2023/10/19/school-lunch/)
 
@@ -68,7 +68,7 @@ Some of my favorite things to eat are:
 6. pad see ew gai (wide rice noodles with chicken, spinach, carrots, & a soy-based sauce)
 7. mee vai vai gai (spicy ramen noodles with carrots, cabbage, & egg served with a soy-based sauce & a vinegar garlic & chili sauce)
 
-## Waiting at the Dock of the Bay? No, at the Bus Stop
+## Sitting at the Dock of the Bay? No, at the Bus Stop
 
 I walk to the bus stop immediately after class so that I can catch the bus as soon as possible. There is a special website you can use to see where the bus is on its route. However, some buses don't appear on the map. Therefore, you have to wait at the bus stop to be sure that you don't miss your ride. I'm pleased with the bus website overall. Pleasantly surprised even!
 
@@ -92,11 +92,11 @@ I see lots of traffic pass me by at the bus stop. I see monks on bicycles and sc
 
 I don't have a specific place to put these things, but I thought I'd include them because I enjoy them. 
 
-![Cannonball flower](https://lh3.googleusercontent.com/pw/AP1GczOMDlsjg2gW0Wrwgl7YuECyZXTzg7p1Vvpqfqna9kBRwT9smb75BM3PR1VTZzP9Usc0CZKE5CZbzGJafTAsKITBCwVkTMrKsLeNFBZVx7Qb0I3-CSyf=w1000)
+![Cannon ball flower](https://lh3.googleusercontent.com/pw/AP1GczOMDlsjg2gW0Wrwgl7YuECyZXTzg7p1Vvpqfqna9kBRwT9smb75BM3PR1VTZzP9Usc0CZKE5CZbzGJafTAsKITBCwVkTMrKsLeNFBZVx7Qb0I3-CSyf=w1000)
 
 Courtesy of Guerra, C. (2024)
 
-I pass this Cannonball flower every day on the way to school. It's beautiful! I'd never seen one before Laos. 
+I pass this Cannon ball flower every day on the way to school. It's beautiful! I'd never seen one before Laos. 
 
 ![Soulless grapes](https://lh3.googleusercontent.com/pw/AP1GczNNeZsDTs2EsvqmxEMYv2U2st7AExfORW8SuIjPl64Z7ozMC0Bc9BpKittVUljmbmu762C-wkKcQ2zookrkya2amFquS1X3HRl0xxoyZw9jzikEpfJp=w1000)
 
