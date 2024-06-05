@@ -1,10 +1,10 @@
 ---
 layout: post
-title: My 23rd Birthday
+title: My Birthday in Laos
 categories: [special celebration]
 ---
 
-Today it was my 23rd birthday.
+Today it was my birthday.
 
 ## A Me Party
 
