@@ -4,9 +4,26 @@ title: Choir Concert at Vientiane International School
 categories: [choir]
 ---
 
-This my first post. 
+Today was our choir concert at the Vientiane International School. 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## The Voices of Angels
+
+We sang 5 songs for our choir concert today. We've been practicing for this concert at the German Embassy for 2 months. We were excited to show off our hard work and share our music with the audience. 
+
+Songs: 
+1. "Somewhere Over the Rainbow" 
+2. "L'Oiseau et L'Enfant" 
+3. "Fireflies (Hotaru Koi)" -- Japanese folk song
+4. "Freedom" -- American Spiritual
+5. "Motet, Ave verum corpus" -- Mozart
+
+![choir selfie](https://lh3.googleusercontent.com/pw/AP1GczPZtsomJGRvd5jkwAiwGYT_NaflFg9bBfhWbvM7Vi8RbfgLFjtHiEFZzgEmpsqQv5QJ4TYKDLhapLUjRDvqzHpyUkHLxQ7q5wRFDBiJogk6xtjpbZIV=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+Here is most of the choir wearing our official shirts. 
+
+Our recording is not on Youtube, so you won't be able to hear it. Just imagine that we sounded like angels--because we did! 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
