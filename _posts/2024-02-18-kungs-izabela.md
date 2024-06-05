@@ -1,12 +1,46 @@
 ---
 layout: post
-title: Meeting Vets Without Borders Volunteer Izabela
+title: Meeting Vets without Borders Volunteer Izabela
 categories: [food]
 ---
 
-This my first post. 
+Today I met the Vets without Borders volunteer from Toronto, Canada! 
 
-Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+## CARE Connects Us
+
+I met Izabela this week because she is working at CARE for a few months. Vets without Borders is a Canadian government NGO. She will work in Comms and help them brainstorm how to make Comms more creative and engaging. She will be here from February to the end of June. 
+
+Today we went to PVO for bahn mis and then to a cool place called Kung's Café for coffee and desserts. PVO was great as always. (I go here a lot for their chicken bahn mi! It has pulled chicken, a honey mustard-like sauce, a slaw, cilantro, carrots, and cucumbers on it.) I always sit by the fish tank, and today was no different. 
+
+I had never been to Kung's before today. I had fried bananas with a coffee/chocolate sauce. I don't drink coffee, so of course I didn't have any of that. Izabela said that their coconut coffee was fantastic though! (They dry their own coconut in-house and then crush it into a powder that they put in the coffee. You can't buy this stuff in a store!)
+
+![gourds from the ceiling](https://lh3.googleusercontent.com/pw/AP1GczPpVbNbvU8TxqORZKMji6RyZahBSLt6saY1xRxiIaksWHbeu_VXDVQwDmr8UMlcd_8cMh1y-fJhJ-TN9XnG1imqWQ-dv_mTeobilTbSnzx4bZ1J6GFc=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+Dried gourds hanging from the ceiling at Kung's
+
+![table at Kung's](https://lh3.googleusercontent.com/pw/AP1GczMzIq5ktBk8q_tAQgdPjOBQYSq5AlDIbZwISLldsvyQT-Wqefj-ocaImxh9muujGGFFWeEVcNzAzszuosEtWsRyqYEqe5Mif8ZvEJ7KmlRehmqdn-hY=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+We sat at this cute table by the mural
+
+We also took some photos at Kung's because it's just so charming. 
+
+![both of us Kung's](https://lh3.googleusercontent.com/pw/AP1GczPYFiII8HyVn_TMrWcCSaQwYU284VNG--RW25_XFjOH5ShWdA5OybQNNEaXmbdtWO8fumqiGKTqMN301-WnpuIhAiX54Nz56cAEu-vIrVTj9JlFLs2q=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+Here we are! 
+
+![me by myself](https://lh3.googleusercontent.com/pw/AP1GczOHeNvRXLWZEMkd3J_8NrnWtWzo2VMuXcngN68VHZVAZTR7jkHkkL9T1EOpcMEK7uh4orF6YCEzopaKctnnd1mL1qqZM-7h1lzugsfrJeJQDsD0IDmm=w1000)
+
+Courtesy of Guerra, C. (2024)
+
+Just me! 
+
+I hope that we spend time together and become friends. Izabela seems really cool!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
