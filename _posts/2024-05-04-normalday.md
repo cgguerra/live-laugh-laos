@@ -8,7 +8,7 @@ Since I've been in Laos for almost 10 months, I thought that I should document w
 
 ## Just Another Day
 
-I start the day by getting on the 29 or 31 bus to Dong Duk. It takes me about 30-45 minutes depending when I leave. (My classes start at all different times on different days of the week, so the time that I leave for school varies each day.) 
+I start the day by getting on the 29 or 31 bus to Dong Duk. It takes me about 30-45 minutes depending when I leave. (My classes start at all different times on different days of the week, so the time that I leave for school varies each day.) I pay 8,000 K to ride the bus one way. (The bus one-way rate *used* to be 6,000 K one way, but inflation hit hard across all of Laos, causing the price of most things to increase slightly. But anyways, documenting the increase *does*, however, make me sound like a verified geezer.)
 
 ![Dirt Road bus stop](https://lh3.googleusercontent.com/pw/AP1GczPKCHoyuIpj_RsmpXudhC4KcHxqUfnGLQBHvJzavZuDSSa0D_oRd8ECBoPWg2F3aWaPnzQ7maY37ytZS9l12VWlsUxQAsv7zlJK1LI4jsLAeAZcEGGg=w1000)
 
@@ -92,13 +92,17 @@ I see lots of traffic pass me by at the bus stop. I see monks on bicycles and sc
 
 I don't have a specific place to put these things, but I thought I'd include them because I enjoy them. 
 
-![Cannonball flower]()
+![Cannonball flower](https://lh3.googleusercontent.com/pw/AP1GczOMDlsjg2gW0Wrwgl7YuECyZXTzg7p1Vvpqfqna9kBRwT9smb75BM3PR1VTZzP9Usc0CZKE5CZbzGJafTAsKITBCwVkTMrKsLeNFBZVx7Qb0I3-CSyf=w1000)
 
 Courtesy of Guerra, C. (2024)
 
-![Soulless grapes]()
+I pass this Cannonball flower every day on the way to school. It's beautiful! I'd never seen one before Laos. 
+
+![Soulless grapes](https://lh3.googleusercontent.com/pw/AP1GczNNeZsDTs2EsvqmxEMYv2U2st7AExfORW8SuIjPl64Z7ozMC0Bc9BpKittVUljmbmu762C-wkKcQ2zookrkya2amFquS1X3HRl0xxoyZw9jzikEpfJp=w1000)
 
 Courtesy of Guerra, C. (2024)
+
+I frequently see misspellings around town in Vientiane. I don't blame them because English spelling is hard. Sometimes, they're pretty funny mistakes. This is my all-time favorite! *Soulless* grapes? I really hope you mean *seedless*!
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
