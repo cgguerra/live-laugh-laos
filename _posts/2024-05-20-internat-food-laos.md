@@ -50,15 +50,23 @@ Courtesy of Guerra, C. (2024)
 
 They had walls of old movie posters from around the world. 
 
+Vientiane has a surprising number and variety of international restaurants! 
+
 ## Expensive Restaurants in Laos ($$$$)
 
-A normal, inexpensive Lao meal costs about 25,000-30,000 K ($1.16-$1.39). A meal at the cafeteria costs 28,000 K ($1.30). Prices increased from 25,000 K to 28,000 K for most dishes at the cafeteria because inflation has been rampant in Laos. Some special dishes like khao na gai (Lao teriyaki chicken) are 30,000 K ($1.39). 
+A normal, inexpensive Lao meal costs about 25,000-30,000 K (1.16-1.39). A meal at the cafeteria costs 28,000 K (1.30). Prices increased from 25,000 K to 28,000 K for most dishes at the cafeteria because inflation has been rampant in Laos. Some special dishes like khao na gai (Lao teriyaki chicken) are 30,000 K (1.39). 
 
 Non-Lao food is usually more expensive. A schnitzel at Berliner Biergarten is 80,000 K ($3.72). This probably doesn't sound like a lot of money to you. However, for the average Lao person, this is pricey. One of my students from Oral Communication 2A gave a presentation about her first job (the assignment was "An Experience that Taught You Something"), and she told us that she made 9,000 K an hour at this hard, awful job making pizza in a hot little kitchen. Dear reader, my student made 0.42 cents an hour. This is a normal salary for a fast food or student job. (People who work in international business, NGO, foreign embassy, or Lao government make more money than others in general.) People get paid even less in the country. So meals that cost 80,000-100,000 K are expensive. 
 
 ## Supermarkets in Laos
 
-It's hard to find ingredients here that aren't Asian. For example, there are several large Asian supermarkets with food from China, Korea, and Japan. I haven't been able to cook here because I can't find ingredients I'm familiar with. I'm impressed that restaurants have been able to source all the ingredients they need to make international dishes. Vientiane has a surprising number and variety of international restaurants! 
+It's hard to find ingredients here that aren't Asian. For example, there are several large Asian supermarkets with food from China, Korea, and Japan. I haven't been able to cook here because I can't find ingredients I'm familiar with. I'm impressed that restaurants have been able to source all the ingredients they need to make international dishes. 
+
+Things that are imported are expensive. Mustard, Nutella, and peanut butter are examples of things that are considered expensive in Laos. 
+
+Mustard 60,000 K 
+Nutella (big jar) 180,000 K 
+Peanut Butter 60,000 K 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  

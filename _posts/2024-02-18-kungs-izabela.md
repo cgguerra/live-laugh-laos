@@ -8,7 +8,7 @@ Today I met the Vets without Borders volunteer from Toronto, Canada!
 
 ## CARE Connects Us
 
-I met Izabela this week because she is working at CARE for a few months. Vets without Borders is a Canadian government NGO. She will work in Comms and help them brainstorm how to make Comms more creative and engaging. She will be here from February to the end of June. 
+I met Izabela this week because she is working at CARE for a few months. Vets without Borders is a Canadian government NGO. She will work in Comms and help them brainstorm how to make Comms more creative and engaging. She will be here from February to the end of June. She is Polish-Canadian, which is super cool!
 
 Today we went to PVO for bahn mis and then to a cool place called Kung's Café for coffee and desserts. PVO was great as always. (I go here a lot for their chicken bahn mi! It has pulled chicken, a honey mustard-like sauce, a slaw, cilantro, carrots, and cucumbers on it.) I always sit by the fish tank, and today was no different. 
 
