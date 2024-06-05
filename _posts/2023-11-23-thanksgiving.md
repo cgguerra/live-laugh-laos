@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Happy Thanksgiving! (Lao Style)
-categories: [Buddhism, daily life, culture, teaching, special celebration]
+categories: [Buddhism, daily life, culture, teaching, holiday]
 ---
 
 On Tuesday I was talking with one of my American Center students on the bus who is a monk. His name is Nee. We had a class at the American Center celebrating Thanksgiving. I thought I'd include my second post about Buddhist monks here since I learned so much before class! I also included my Thanksgiving celebration on Thursday, which was pretty uneventful.

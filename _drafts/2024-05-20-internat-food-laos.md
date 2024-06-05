@@ -1,12 +1,14 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: International Food Options in Vientiane
+categories: [food, sights]
 ---
 
 This my first post. 
 
 Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
+
+include Izabela's trip to wat for pictures
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  

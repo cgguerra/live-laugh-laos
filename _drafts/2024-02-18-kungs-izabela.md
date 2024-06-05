@@ -1,45 +1,12 @@
 ---
 layout: post
-title: Lai Heua Fai
-categories: [holiday, culture]
+title: Meeting Vets Without Borders Volunteer Izabela
+categories: [food]
 ---
-Lai Heua Fai is today! (It always falls on the day after Buddhist Lent.) On this day, people in Luang Prabang and Vientiane have boat races, release banana leaf boats on the river, and enjoy the lanterns around the city.
 
-## My Boat
+This my first post. 
 
-To make a boat, you first take a slice of a banana trunk and tightly pin a folded banana leaf around it with bamboo toothpicks. The, you start folding triangles with banana leaves and bend the flexible toothpicks to look like staples. You then pin the triangles to the banana trunk. You can make as many or as few triangles as you want. I was having fun, so I made a lot. Then, you add the marigolds on top and stick them in with bamboo toothpicks. I stuck a lot in! (You can choose from orange or yellow marigolds.) You stick the candles and incense sticks into the banana stump and then add some strands of hair or a fingernail to your boat. I added some strands of hair. 
-
-![my boat](https://lh3.googleusercontent.com/pw/ADCreHfDwFaoXBzMdRI8iMfVy9eK892tuOyt2rSTIU6MHjY0g_ptbXDgNM7ylg58BNq7hYlhIN60htz1M9MDTxDuAZQ--iOCfQkryUOjD6nV11INTXjxUnl0=w1000)
-
-Courtesy of Guerra, C. (2023)
-
-My boat
-
-The idea is that when you put your boat on the Mekong, the boat will carry your sins and mistakes away and you will be prepared for a fresh start. The strand of hair or fingernail serves as a piece of yourself, showing that you are symbolically going down the river. When you float your boat down the river, you make a wish for the new season. 
-
-My train leaves at 4:50, so I will not be in Luang Prabang for the boat races. I decided to take my boat to the river in the morning and release it. Hopefully releasing the boat earlier on the same day will still give me good luck for the new season!
-
-![my boat on the river](https://lh3.googleusercontent.com/pw/ADCreHfA2LBoMz44NaQZ-uT-CStVuek3BwoABHY7ZcPbysAh1rujoqM-jbrSG7WvKnTmoXK2oisa7WUMtdIHk8N2vdACjTXBI2OnTp17b6McP_jao4ngsyji=w1000)
-
-Courtesy of Guerra, C. (2023)
-
-My completed boat floating down the Mekong
-
-After I released my boat, I wandered around and looked at wats with their bright paper lanterns. Last night I saw a large boat that the monks will release on the river this evening. I thought I'd include a picture to give an idea of what the boats will look like. 
-
-![boat release](https://lh3.googleusercontent.com/pw/ADCreHe2YbndAAzDP3uGNm-f7hiJtS_3AAMyFFWhhcUKLfzscmunUezhN2draaqR3TW9qTz64jYM7u98UZBHEkYFYQMORUrIjOvq4VEyeu19SmYoLTZ4nxlW=w1000)
-
-Courtesy of Guerra, C. (2023)
-
-The monks will put boats like these on the river
-
-## Chance of Rain
-
-I left for the station in a touk touk, and when I arrived, it immediately began pouring. It rained twice while I waited for my train. I am not sure if the monks will release the boats or if there will be many lit offering boats floating on the river. Hopefully the rain didn't ruin the holiday!
-
-## Getting Home
-
-I got home at 7:30 after taking the bus back from the train station. There were still street food vendors out for the celebration. I grabbed some fried ham sandwiches, one of my favorite street foods, and some noodles and headed home. I had a great time in Luang Prabang, and I learned so much!
+Hello, everyone! Today is the day that I leave for Laos. I fly from Qatar to Bangkok to Vientiane. My flight time is 23 hours! After I arrive, we will begin orientation on August 21st. Our orientation will include intensive Lao lessons, history lessons, and field trips to places of cultural significance. 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  

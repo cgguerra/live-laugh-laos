@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: March & April Are Air Pollution Season
+categories: [daily life]
 ---
 
 This my first post. 

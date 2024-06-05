@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Easy Like Sunday Morning
-categories: [content, demo]
+title: Weather & Plants in Laos
+categories: [daily life]
 ---
 
 This my first post. 
