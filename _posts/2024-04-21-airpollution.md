@@ -12,12 +12,14 @@ The air pollution has been intense recently.
 
 Here's the scale so you're aware of what the numbers mean: 
 
-0-50 Good
-50-100 Moderate
-101-150 Unhealthy for sensitive groups
-151-200 Unhealthy 
-201-300 Very Unhealthy 
-301+ Hazardous
+Numbers | Rating 
+--- | --- 
+0-50 | Good
+50-100 | Moderate
+101-150 | Unhealthy for sensitive groups
+151-200 | Unhealthy
+201-300 | Very Unhealthy
+301+ | Hazardous
 
 In March and April, air pollution has ranged from 120-180. I've had to stay inside and avoid outdoor activities as much as possible recently. When I go outside, I wear a KN-95. (It's usually around 40-100 during a normal day at any other time of the year.) By comparison, Dallas is usually somewhere around the 30s or 40s. 
 

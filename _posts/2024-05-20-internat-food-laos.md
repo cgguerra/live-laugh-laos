@@ -64,9 +64,9 @@ It's hard to find ingredients here that aren't Asian. For example, there are sev
 
 Things that are imported are expensive. Mustard, Nutella, and peanut butter are examples of things that are considered expensive in Laos. 
 
-Mustard 60,000 K 
-Nutella (big jar) 180,000 K 
-Peanut Butter 60,000 K 
+1. Mustard 60,000 K 
+2. Nutella (big jar) 180,000 K 
+3. Peanut Butter 60,000 K 
 
 <!-- Hello and welcome. The only purpose of this post is to greet you when your site comes alive for the first time.  
 This post will demonstrate some of the more common content & elements found in posts.  
