@@ -52,11 +52,11 @@ They had walls of old movie posters from around the world.
 
 Vientiane has a surprising number and variety of international restaurants! 
 
-## Expensive Restaurants in Laos ($$$$)
+## Expensive Restaurants in Laos
 
 A normal, inexpensive Lao meal costs about 25,000-30,000 K (1.16-1.39). A meal at the cafeteria costs 28,000 K (1.30). Prices increased from 25,000 K to 28,000 K for most dishes at the cafeteria because inflation has been rampant in Laos. Some special dishes like khao na gai (Lao teriyaki chicken) are 30,000 K (1.39). 
 
-Non-Lao food is usually more expensive. A schnitzel at Berliner Biergarten is 80,000 K ($3.72). This probably doesn't sound like a lot of money to you. However, for the average Lao person, this is pricey. One of my students from Oral Communication 2A gave a presentation about her first job (the assignment was "An Experience that Taught You Something"), and she told us that she made 9,000 K an hour at this hard, awful job making pizza in a hot little kitchen. Dear reader, my student made 0.42 cents an hour. This is a normal salary for a fast food or student job. (People who work in international business, NGO, foreign embassy, or Lao government make more money than others in general.) People get paid even less in the country. So meals that cost 80,000-100,000 K are expensive. 
+Non-Lao food is usually more expensive. A schnitzel at Berliner Biergarten is 80,000 K (3.72). This probably doesn't sound like a lot of money to you. However, for the average Lao person, this is pricey. One of my students from Oral Communication 2A gave a presentation about her first job (the assignment was "An Experience that Taught You Something"), and she told us that she made 9,000 K an hour at this hard, awful job making pizza in a hot little kitchen. Dear reader, my student made 0.42 cents an hour. This is a normal salary for a fast food or student job. (People who work in international business, NGO, foreign embassy, or Lao government make more money than others in general.) People get paid even less in the country. So meals that cost 80,000-100,000 K are expensive. 
 
 ## Supermarkets in Laos
 
